@@ -35,7 +35,7 @@ Aesthetic 1.3.1 EDITT - https://www.mediafire.com/file/lp3dyzbtjq9kisk/Aesthetic
 UltraClean - https://www.mediafire.com/file/xpmucaxhodyne3e/-_UltraClean.osk/file
 ![screenshot429](https://user-images.githubusercontent.com/84919892/132959151-98f4c5ad-cf7f-4d05-b808-38dee22ab491.png)
 
-Rainbow-v2(Old BTMC Skin) - 
+Rainbow-v2(Old BTMC Skin) - https://www.mediafire.com/file/rwej1a4c603k5m2/~Rainbow~+v2+(Prism+Elements).osk/file
 ![screenshot428](https://user-images.githubusercontent.com/84919892/132959172-31830c97-3290-4a86-9bbf-78313324f9af.png)
 
 E810 - https://www.mediafire.com/file/cdhnhvxrqtsnc6h/E810.osk/file
