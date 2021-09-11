@@ -11,7 +11,7 @@ MEGUMOON - https://www.mediafire.com/file/8iob5b6rok1pcis/MEGUMOON.osk/file
 D E M O O N 06.09.2021 - https://www.mediafire.com/file/krcbttlv9seri40/D_E_M_O_O_N_06.09.2021.osk/file
 ![screenshot436](https://user-images.githubusercontent.com/84919892/132959056-1c1bfaca-dfb5-43e5-b2d7-e35f9c0335c7.png)
 
-Azer D E M O O N - 
+Azer D E M O O N - https://www.mediafire.com/file/p2rpj3ed4p6fvu7/Azer+D+E+M+O+O+N.osk/file
 ![screenshot432](https://user-images.githubusercontent.com/84919892/132959065-e4dd2cd9-eefa-46b6-bacb-9a2b12eb6fcb.png)
 
 D E M O O N FL - https://www.mediafire.com/file/rspo11jj8sa8dgd/D_E_M_O_O_N_FL.osk/file
@@ -19,6 +19,9 @@ D E M O O N FL - https://www.mediafire.com/file/rspo11jj8sa8dgd/D_E_M_O_O_N_FL.o
 
 #azer8D E M O O N - https://www.mediafire.com/file/frrmcfxh3md1mm4/%2523azer8D_E_M_O_O_N.osk/file
 ![screenshot427](https://user-images.githubusercontent.com/84919892/132959108-64040d87-8547-4f18-b915-874cd0fc8fc1.png)
+
+HDSki - https://www.mediafire.com/file/e4cfnn854rf8sf6/HDSki.osk/file
+![screenshot443](https://user-images.githubusercontent.com/84919892/132959983-60e15fd0-28bf-4298-bc93-e9acd7ad3237.png)
 
 idke 1.2 - https://www.mediafire.com/file/rnzc2o9ksuqc8zu/idke+1.2+without+sliderendcircle.osk/file
 ![screenshot439](https://user-images.githubusercontent.com/84919892/132959117-b5858e22-5276-4555-8317-54959a6422d4.png)
@@ -41,11 +44,14 @@ Rainbow-v2(Old BTMC Skin) -
 E810 - https://www.mediafire.com/file/cdhnhvxrqtsnc6h/E810.osk/file
 ![screenshot424](https://user-images.githubusercontent.com/84919892/132959186-e8d778a1-c6a8-43a7-8a07-3e8b63ea1e49.png)
 
-Asriel+COBO+Edit - 
+Asriel+COBO+Edit - https://www.mediafire.com/file/yd97iqniq9yioq6/Asriel%252BCOBO%252BEdit.osk/file
 ![screenshot420](https://user-images.githubusercontent.com/84919892/132959195-1aee7744-8455-4456-99ec-8a1a7880a377.png)
 
-Incandescent Nebulae - 
+SeoulEdit - 
+![screenshot440](https://user-images.githubusercontent.com/84919892/132959928-d2c45225-1989-4674-8205-4e2f63ebf756.png)
+
+Incandescent Nebulae - https://www.mediafire.com/file/kpjp6hivkd8tu7e/Incandescent+Nabulae.osk/file
 ![screenshot419](https://user-images.githubusercontent.com/84919892/132959210-f8f07363-b567-4d69-9df8-4a53318a4eed.png)
 
-YUGEN - with no numbers and diffrent aproach circle - 
+YUGEN - with no numbers and diffrent aproach circle - https://www.mediafire.com/file/06xxgig7kmzuk4d/-+YUGEN+witn+no+nums+and+diffrent+approachcircle+-.osk/file
 ![screenshot418](https://user-images.githubusercontent.com/84919892/132959226-421bd334-b0f8-4b12-bcaa-4067a0db5a18.png)
