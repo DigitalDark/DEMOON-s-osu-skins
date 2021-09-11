@@ -20,10 +20,10 @@ D E M O O N FL - https://www.mediafire.com/file/rspo11jj8sa8dgd/D_E_M_O_O_N_FL.o
 #azer8D E M O O N - https://www.mediafire.com/file/frrmcfxh3md1mm4/%2523azer8D_E_M_O_O_N.osk/file
 ![screenshot427](https://user-images.githubusercontent.com/84919892/132959108-64040d87-8547-4f18-b915-874cd0fc8fc1.png)
 
-idke 1.2 - 
+idke 1.2 - https://www.mediafire.com/file/rnzc2o9ksuqc8zu/idke+1.2+without+sliderendcircle.osk/file
 ![screenshot439](https://user-images.githubusercontent.com/84919892/132959117-b5858e22-5276-4555-8317-54959a6422d4.png)
 
-BubbleSkinDT 2k18 - 
+BubbleSkinDT 2k18 - https://www.mediafire.com/file/jxt9g638v6nt1zi/BubbleSkinDT.osk/file
 ![screenshot434](https://user-images.githubusercontent.com/84919892/132959125-93d73140-a48c-4fb7-9931-4366ce0d0bc2.png)
 
 Aesthetic 1.3.1 EDITT - https://www.mediafire.com/file/lp3dyzbtjq9kisk/Aesthetic_1.3.1_EDITT.osk/file
@@ -47,5 +47,5 @@ Asriel+COBO+Edit -
 Incandescent Nebulae - 
 ![screenshot419](https://user-images.githubusercontent.com/84919892/132959210-f8f07363-b567-4d69-9df8-4a53318a4eed.png)
 
-- YUGEN - with no numbers and diffrent aproach circle - 
+YUGEN - with no numbers and diffrent aproach circle - 
 ![screenshot418](https://user-images.githubusercontent.com/84919892/132959226-421bd334-b0f8-4b12-bcaa-4067a0db5a18.png)
