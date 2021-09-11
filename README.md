@@ -1,5 +1,5 @@
 # DEMOON-s-osu-skins
-D E MO O N's osu! skins (not all of them). if you want me to add one of skins he uses dm me on discord: Your Living Nightmare#2368
+D E M O O N's osu! skins (not all of them). if you want me to add one of skins he uses dm me on discord: Your Living Nightmare#2368
 
 
 t180 - https://www.mediafire.com/file/yd97iqniq9yioq6/t180.osk/file
@@ -32,9 +32,6 @@ BubbleSkinDT 2k18 - https://www.mediafire.com/file/jxt9g638v6nt1zi/BubbleSkinDT.
 Aesthetic 1.3.1 EDITT - https://www.mediafire.com/file/lp3dyzbtjq9kisk/Aesthetic_1.3.1_EDITT.osk/file
 ![screenshot433](https://user-images.githubusercontent.com/84919892/132959134-8c0873c7-ba67-4a4d-9649-ff6106df9401.png)
 
-hey+dt+purple - 
-![screenshot430](https://user-images.githubusercontent.com/84919892/132959143-8abd4ad1-c114-402d-ac39-ed8bc2118cd2.png)
-
 UltraClean - https://www.mediafire.com/file/xpmucaxhodyne3e/-_UltraClean.osk/file
 ![screenshot429](https://user-images.githubusercontent.com/84919892/132959151-98f4c5ad-cf7f-4d05-b808-38dee22ab491.png)
 
@@ -47,7 +44,7 @@ E810 - https://www.mediafire.com/file/cdhnhvxrqtsnc6h/E810.osk/file
 Asriel+COBO+Edit - https://www.mediafire.com/file/yd97iqniq9yioq6/Asriel%252BCOBO%252BEdit.osk/file
 ![screenshot420](https://user-images.githubusercontent.com/84919892/132959195-1aee7744-8455-4456-99ec-8a1a7880a377.png)
 
-SeoulEdit - 
+SeoulEdit - https://www.mediafire.com/file/pu1pinppuhcn8dt/SeoulEdit.osk/file
 ![screenshot440](https://user-images.githubusercontent.com/84919892/132959928-d2c45225-1989-4674-8205-4e2f63ebf756.png)
 
 Incandescent Nebulae - https://www.mediafire.com/file/kpjp6hivkd8tu7e/Incandescent+Nabulae.osk/file
