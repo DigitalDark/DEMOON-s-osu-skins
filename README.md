@@ -71,5 +71,9 @@ D E M O O N Arisita - https://www.mediafire.com/file/9qf0b0vcaqptzwq/-++++DMN[1.
 SnowWhite+EDIT - https://www.mediafire.com/file/yw8kh9fh59ndput/SnowWhite+EDIT.osk/file
 ![screenshot453](https://user-images.githubusercontent.com/84919892/132979488-907a13ac-cc2e-4357-ae52-68a7ac8ece32.png)
 
+AS - Noel 2 (Optimized) - https://www.mediafire.com/file/vhye945n9a36alc/AA+-+Noel+2+(Optimized).osk/file 
+![screenshot454](https://user-images.githubusercontent.com/84919892/132979681-57488f1c-579b-450c-a7aa-4b1c1d645dcb.png)
 
+Bloo - 
+![screenshot1024](https://camo.githubusercontent.com/f1047c8661be2804992b5c31055c2173a53a15a65345ff163f97a4edeed77b0a/68747470733a2f2f6f73752e7070792e73682f73732f31363838393039332f61316162)
 
