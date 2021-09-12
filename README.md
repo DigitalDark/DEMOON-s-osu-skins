@@ -88,3 +88,7 @@ MaidDragon[NM] - https://www.mediafire.com/file/fra4i0g4gsi6nkv/-_%25E1%259A%259
 
 WWW 1.3 EDIT - https://www.mediafire.com/file/alpxqc38ep0zh3e/WWW+1.3+EDIT.osk/file
 ![screenshot458](https://user-images.githubusercontent.com/84919892/132985815-6454a8b2-5ba0-49ad-866a-0a4fa08f0ab3.png)
+
+KoiEDIT - https://www.mediafire.com/file/e5mtdonl3q0erk7/KoiEDIT.osk/file
+![screenshot460](https://user-images.githubusercontent.com/84919892/132987243-0398ea21-bea3-48ab-9abc-49eef86b4a1b.png)
+
