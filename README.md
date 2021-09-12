@@ -60,10 +60,16 @@ Mafham Mix - https://www.mediafire.com/file/oymyqudofiowhre/Mafham+Mix.osk/file
 ![screenshot446](https://user-images.githubusercontent.com/84919892/132978816-41d246be-c471-48ed-abe3-7c10147a6b81.png)
 
 DMN[1.0]+NM - https://www.mediafire.com/file/9qf0b0vcaqptzwq/-++++DMN[1.0].osk/file
-![Uploading screenshot447.png…]()
+![screenshot447](https://user-images.githubusercontent.com/84919892/132979472-8d3cf277-5179-4430-874c-7e0be4740c85.png)
 
 D E M O O N Arisita - https://www.mediafire.com/file/9qf0b0vcaqptzwq/-++++DMN[1.0].osk/file
 ![screenshot450](https://user-images.githubusercontent.com/84919892/132978939-7112ce7d-a180-4077-b4cb-07da506cba23.png)
+
+404+DMN+Edit - https://www.mediafire.com/file/gk5fki8vp6hei1n/404+DMN+Edit.osk/file
+![screenshot451](https://user-images.githubusercontent.com/84919892/132979373-e1c2a1df-44ed-465c-94e8-c88825c850d2.png)
+
+SnowWhite+EDIT - https://www.mediafire.com/file/yw8kh9fh59ndput/SnowWhite+EDIT.osk/file
+![screenshot453](https://user-images.githubusercontent.com/84919892/132979488-907a13ac-cc2e-4357-ae52-68a7ac8ece32.png)
 
 
 
