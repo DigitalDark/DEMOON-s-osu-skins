@@ -51,4 +51,19 @@ Incandescent Nebulae - https://www.mediafire.com/file/kpjp6hivkd8tu7e/Incandesce
 ![screenshot419](https://user-images.githubusercontent.com/84919892/132959210-f8f07363-b567-4d69-9df8-4a53318a4eed.png)
 
 YUGEN - with no numbers and diffrent aproach circle - https://www.mediafire.com/file/06xxgig7kmzuk4d/-+YUGEN+witn+no+nums+and+diffrent+approachcircle+-.osk/file
-![screenshot418](https://user-images.githubusercontent.com/84919892/132959226-421bd334-b0f8-4b12-bcaa-4067a0db5a18.png)
+![screenshot418](https://user-images.githubusercontent.com/84919892/132978378-38a8daf2-0dfb-45c2-b3be-608b7d478cb4.png)
+
+Default Edit - https://www.mediafire.com/file/bzk0bruw5bbt28i/DEFAULTEDIT.osk/file![Uploading screenshot444.png
+![screenshot444](https://user-images.githubusercontent.com/84919892/132978502-4bcf11de-0399-4f52-809d-670916028d54.png)
+
+Mafham Mix - https://www.mediafire.com/file/oymyqudofiowhre/Mafham+Mix.osk/file
+![screenshot446](https://user-images.githubusercontent.com/84919892/132978816-41d246be-c471-48ed-abe3-7c10147a6b81.png)
+
+DMN[1.0]+NM - https://www.mediafire.com/file/9qf0b0vcaqptzwq/-++++DMN[1.0].osk/file
+![Uploading screenshot447.png…]()
+
+D E M O O N Arisita - 
+![screenshot450](https://user-images.githubusercontent.com/84919892/132978939-7112ce7d-a180-4077-b4cb-07da506cba23.png)
+
+
+
