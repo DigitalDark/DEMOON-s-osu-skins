@@ -79,3 +79,7 @@ Bloo - https://b.catgirlsare.sexy/HfMuYteOG8l2.osk (Private Host)
 
 McOsu! - https://www.mediafire.com/file/ekq8ymq5jdr0jf2/McOsu!.osk/file
 ![screenshot455](https://user-images.githubusercontent.com/84919892/132980204-ee7b3e28-6730-41bf-9c02-8fa17edc5be2.png)
+
+Crystalized+Edit - https://www.mediafire.com/file/q7ri1glqzxm5sw2/crystalized+edit.osk/file
+![screenshot456](https://user-images.githubusercontent.com/84919892/132984380-1ba1cde1-c267-4f52-96e6-e23a0e6430df.png)
+
