@@ -74,9 +74,6 @@ SnowWhite+EDIT - https://www.mediafire.com/file/yw8kh9fh59ndput/SnowWhite+EDIT.o
 AS - Noel 2 (Optimized) - https://www.mediafire.com/file/vhye945n9a36alc/AA+-+Noel+2+(Optimized).osk/file 
 ![screenshot454](https://user-images.githubusercontent.com/84919892/132979681-57488f1c-579b-450c-a7aa-4b1c1d645dcb.png)
 
-Bloo - https://b.catgirlsare.sexy/HfMuYteOG8l2.osk (Private Host)
-![screenshotBRUH](https://camo.githubusercontent.com/f1047c8661be2804992b5c31055c2173a53a15a65345ff163f97a4edeed77b0a/68747470733a2f2f6f73752e7070792e73682f73732f31363838393039332f61316162)
-
 McOsu! - https://www.mediafire.com/file/ekq8ymq5jdr0jf2/McOsu!.osk/file
 ![screenshot455](https://user-images.githubusercontent.com/84919892/132980204-ee7b3e28-6730-41bf-9c02-8fa17edc5be2.png)
 
@@ -91,4 +88,8 @@ WWW 1.3 EDIT - https://www.mediafire.com/file/alpxqc38ep0zh3e/WWW+1.3+EDIT.osk/f
 
 KoiEDIT - https://www.mediafire.com/file/e5mtdonl3q0erk7/KoiEDIT.osk/file
 ![screenshot460](https://user-images.githubusercontent.com/84919892/132987243-0398ea21-bea3-48ab-9abc-49eef86b4a1b.png)
+
+ᚖBloo v1.1ᚖ D E M O O N - https://www.mediafire.com/file/r6tltcklnk1zk3i/-++++++++++++++++++ᚖBloo+v1.1ᚖ+D+E+M+O+O+N.osk/file
+![screenshot462](https://user-images.githubusercontent.com/84919892/133122394-7d06da84-e502-4ea1-b177-dd1ae365f8e0.png)
+
 
