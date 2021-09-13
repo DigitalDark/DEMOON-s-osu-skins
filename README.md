@@ -2,7 +2,7 @@
 D E M O O N's osu! skins (not all of them). if you want me to add one of skins he uses dm me on discord: Your Living Nightmare#2368
 ####LAST UPLOADED SKINS ARE ON BOTTOM!
 
-t180 - https://www.mediafire.com/file/yd97iqniq9yioq6/t180.osk/file
+t160 - https://www.mediafire.com/file/tv08jb1rxz0egyg/t160.osk/file
 ![screenshot425](https://user-images.githubusercontent.com/84919892/132959010-ab77f879-9d4f-4f07-831c-3298dae8edbe.png)
 
 MEGUMOON - https://www.mediafire.com/file/8iob5b6rok1pcis/MEGUMOON.osk/file
