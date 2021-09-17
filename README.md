@@ -95,4 +95,9 @@ KoiEDIT - https://www.mediafire.com/file/e5mtdonl3q0erk7/KoiEDIT.osk/file
 Rafis HDDT FADE (no hit animation) - https://www.mediafire.com/file/6lghklvd10nnq23/Rafis+HDDT+FADE.osk/file
 ![screenshot463](https://user-images.githubusercontent.com/84919892/133823753-69f6c971-5dbe-418c-bac5-d7b46ceeb248.png)
 
+WhiteCat (1.0) NO HIT ANIM - https://www.mediafire.com/file/7dswu60q6cmrmch/-++++++++#+WhiteCat+(1.0)+NO+HIT+ANIM.osk/file
+![screenshot464](https://user-images.githubusercontent.com/84919892/133826498-8b6a8c05-2f82-4723-a418-f9ce5a405cfa.png)
+
+
+
 
