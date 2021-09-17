@@ -92,4 +92,7 @@ KoiEDIT - https://www.mediafire.com/file/e5mtdonl3q0erk7/KoiEDIT.osk/file
 ᚖBloo v1.1ᚖ D E M O O N - https://www.mediafire.com/file/r6tltcklnk1zk3i/-++++++++++++++++++ᚖBloo+v1.1ᚖ+D+E+M+O+O+N.osk/file
 ![screenshot462](https://user-images.githubusercontent.com/84919892/133122394-7d06da84-e502-4ea1-b177-dd1ae365f8e0.png)
 
+Rafis HDDT FADE (no hit animation) - https://www.mediafire.com/file/6lghklvd10nnq23/Rafis+HDDT+FADE.osk/file
+![screenshot463](https://user-images.githubusercontent.com/84919892/133823753-69f6c971-5dbe-418c-bac5-d7b46ceeb248.png)
+
 
