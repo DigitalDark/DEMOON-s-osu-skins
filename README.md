@@ -98,6 +98,5 @@ Rafis HDDT FADE (no hit animation) - https://www.mediafire.com/file/6lghklvd10nn
 WhiteCat (1.0) NO HIT ANIM - https://www.mediafire.com/file/7dswu60q6cmrmch/-++++++++#+WhiteCat+(1.0)+NO+HIT+ANIM.osk/file
 ![screenshot464](https://user-images.githubusercontent.com/84919892/133826498-8b6a8c05-2f82-4723-a418-f9ce5a405cfa.png)
 
-
-
-
+rainb0w - https://www.mediafire.com/file/jqvw8oeks2j1bay/-+rainb0w+-.osk/file
+![screenshot465](https://user-images.githubusercontent.com/84919892/133893880-6651136e-3108-47e6-b2ca-84baafea0e2d.png)
