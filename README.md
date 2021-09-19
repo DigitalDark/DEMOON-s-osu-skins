@@ -3,8 +3,13 @@ D E M O O N's osu! skins (not all of them). if you want me to add one of skins h
 ####LAST UPLOADED SKINS ARE ON BOTTOM!
 -------------------------------------------------
 
-My Hp Bar + Score Numbers- https://www.mediafire.com/file/pamraw4zbivvmfg/scorebar.zip/file
+My Hp Bar + Score Numbers - [scorebar.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192598/scorebar.zip)
 ![123](https://user-images.githubusercontent.com/84919892/133926392-756428aa-f754-4576-8f7b-339cb8ee7181.png)
+
+-------------------------------------------------
+
+Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192596/scorebarOLD.zip)
+![scorebar-bg@2x](https://user-images.githubusercontent.com/84919892/133937256-caf3379b-f17b-4f91-892a-0eac504d436c.png)
 
 -------------------------------------------------
 
