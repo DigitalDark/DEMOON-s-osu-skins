@@ -115,3 +115,5 @@ rainb0w - https://www.mediafire.com/file/jqvw8oeks2j1bay/-+rainb0w+-.osk/file
 D E M O O N Gray - https://www.mediafire.com/file/0ihurxc9hmgkw2w/-+D+E+M+O+O+N+Gray.osk/file
 ![screenshot487](https://user-images.githubusercontent.com/84919892/139730120-645b936f-b108-4b6e-97fb-0f4c6c07a6c3.png)
 
+Koyoko [DMN] - https://www.mediafire.com/file/ax5iknwliazukfm/-++++Koyoko+[DMN].osk/file
+![screenshot534](https://user-images.githubusercontent.com/84919892/141368382-4bebed88-31e8-4663-b05d-c83547a0f9f4.png)
