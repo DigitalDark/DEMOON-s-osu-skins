@@ -1,6 +1,6 @@
 # DEMOON-s-osu-skins
 D E M O O N's osu! skins (not all of them). if you want me to add one of skins he uses dm me on discord: Your Living Nightmare#2368
-####LAST UPLOADED SKINS ARE ON BOTTOM!
+####LAST UPLOADED SKINS ARE ON BOTTOM! - Current Skin : SeoulEdit
 -------------------------------------------------
 
 My Hp Bar + Score Numbers - [scorebar.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192598/scorebar.zip)
