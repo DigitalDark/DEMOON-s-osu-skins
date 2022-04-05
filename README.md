@@ -1,6 +1,6 @@
 # DEMOON-s-osu-skins
 D E M O O N's osu! skins (not all of them). if you want me to add one of skins he uses dm me on discord: Your Living Nightmare#2368
-####LAST UPLOADED SKINS ARE ON BOTTOM! - Current Skin : SeoulEdit
+####LAST UPLOADED SKINS ARE ON BOTTOM! - Current Skin : DigitalDark 05.04.2022
 -------------------------------------------------
 
 My Hp Bar + Score Numbers - [scorebar.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192598/scorebar.zip)
@@ -117,3 +117,7 @@ D E M O O N Gray - https://www.mediafire.com/file/0ihurxc9hmgkw2w/-+D+E+M+O+O+N+
 
 Koyoko [DMN] - https://www.mediafire.com/file/ax5iknwliazukfm/-++++Koyoko+[DMN].osk/file
 ![screenshot534](https://user-images.githubusercontent.com/84919892/141368382-4bebed88-31e8-4663-b05d-c83547a0f9f4.png)
+
+DigitalDark 05.04.2022 - https://www.mediafire.com/file/2ypui045kj4xw8f/DigitalDark+05.04.2022.osk/file
+![screenshot632](https://user-images.githubusercontent.com/84919892/161778296-50b609ac-3cac-4932-bd82-52a38d301c96.png)
+
