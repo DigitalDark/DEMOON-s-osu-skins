@@ -121,3 +121,6 @@ Koyoko [DMN] - https://www.mediafire.com/file/ax5iknwliazukfm/-++++Koyoko+[DMN].
 DigitalDark 05.04.2022 - https://www.mediafire.com/file/2ypui045kj4xw8f/DigitalDark+05.04.2022.osk/file
 ![screenshot632](https://user-images.githubusercontent.com/84919892/161778296-50b609ac-3cac-4932-bd82-52a38d301c96.png)
 
+LOLFlashlight-2k18 - https://osuskins.net/skin/tj3odhA
+![screenshot643](https://user-images.githubusercontent.com/84919892/162577434-2f875e9b-45cf-4b28-86a7-e22997d50a95.png)
+
