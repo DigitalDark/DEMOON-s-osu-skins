@@ -124,3 +124,5 @@ DigitalDark 05.04.2022 - https://www.mediafire.com/file/2ypui045kj4xw8f/DigitalD
 LOLFlashlight-2k18 - https://osuskins.net/skin/tj3odhA
 ![screenshot643](https://user-images.githubusercontent.com/84919892/162577434-2f875e9b-45cf-4b28-86a7-e22997d50a95.png)
 
+KamuiHD - https://www.reddit.com/r/OsuSkins/comments/4uwwuk/kamui_skin_hd_remake/
+![screenshot667](https://user-images.githubusercontent.com/84919892/166106061-b6505479-8ca6-4488-9cfc-c8a89f427f34.png)
