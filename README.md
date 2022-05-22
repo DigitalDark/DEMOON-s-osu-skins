@@ -1,6 +1,7 @@
 # DEMOON-s-osu-skins (now my nickname is DigitalDark)
 D E M O O N's osu! skins (not all of them). if you want me to add some skins dm me on discord: Your Living Nightmare#2368
-####LAST UPLOADED SKINS ARE ON BOTTOM! - Current Skin : DigitalDark 05.04.2022
+####LAST UPLOADED SKINS ARE ON BOTTOM! 
+Current Skin : Seoul+Neox Edit
 -------------------------------------------------
 
 My Hp Bar + Score Numbers - [scorebar.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192598/scorebar.zip)
