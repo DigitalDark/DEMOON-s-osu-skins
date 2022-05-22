@@ -126,3 +126,7 @@ LOLFlashlight-2k18 - https://osuskins.net/skin/tj3odhA
 
 KamuiHD - https://www.reddit.com/r/OsuSkins/comments/4uwwuk/kamui_skin_hd_remake/
 ![screenshot667](https://user-images.githubusercontent.com/84919892/166106061-b6505479-8ca6-4488-9cfc-c8a89f427f34.png)
+
+Seoul+Neox Edit (Whitecat NM) - https://github.com/myangelaku/whitecat-skins/raw/master/Seoul+/Seoul+.osk
+![screenshot697](https://user-images.githubusercontent.com/84919892/169700833-17d3645b-8a2a-4d16-a44c-755bb71ad246.png)
+
