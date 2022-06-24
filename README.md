@@ -132,3 +132,11 @@ KamuiHD - https://www.reddit.com/r/OsuSkins/comments/4uwwuk/kamui_skin_hd_remake
 Seoul+Neox Edit (Whitecat NM) - https://github.com/myangelaku/whitecat-skins/raw/master/Seoul+/Seoul+.osk
 ![screenshot697](https://user-images.githubusercontent.com/84919892/169700833-17d3645b-8a2a-4d16-a44c-755bb71ad246.png)
 
+Yukizie+[[Lunatic]]-『DMN』- https://www.mediafire.com/file/115mqr9pizzhyhz/-+Yukizie+edit+[[Lunatic]]-[DMN]+#+-.osk/file
+![screenshot038](https://user-images.githubusercontent.com/84919892/175602805-c889b4dc-0552-4cfc-a0f7-bef30db8b39c.png)
+
+BlooMoon+Edit - https://www.mediafire.com/file/8gho7kqm3a8lxsg/-_%25E3%2580%258EBlooMoon%252BEdit%25E3%2580%258F_-.osk/file
+![screenshot037](https://user-images.githubusercontent.com/84919892/175603621-6c941bfd-48fb-406b-a698-d9d0e5502f6c.png)
+
+
+
