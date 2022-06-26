@@ -140,3 +140,6 @@ BlooMoon+Edit - https://www.mediafire.com/file/8gho7kqm3a8lxsg/-_%25E3%2580%258E
 
 Dunois+Effervescence - https://mizaru.s-ul.eu/hpxh7QMV
 ![screenshot044](https://user-images.githubusercontent.com/84919892/175767014-2aac8e9e-3ce8-4ed0-9a9a-3806b2894013.png)
+
+Reminya[1.0] - https://osuskins.net/skin/dIz0zsC
+![dIz0zsC](https://user-images.githubusercontent.com/84919892/175804968-93e296c7-30d7-465c-b486-ee092620ec2b.jpg)
