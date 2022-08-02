@@ -143,3 +143,6 @@ Dunois+Effervescence - https://mizaru.s-ul.eu/hpxh7QMV
 
 Reminya[1.0] - https://osuskins.net/skin/dIz0zsC
 ![dIz0zsC](https://user-images.githubusercontent.com/84919892/175804968-93e296c7-30d7-465c-b486-ee092620ec2b.jpg)
+
+Noel Chan + Dots - https://www.mediafire.com/file/v6x8w87wy11fejv/-+#+Noel+Chan+++Dots.osk/file (srry for bad screenshot, gonna make a new one later)
+![screenshot060](https://user-images.githubusercontent.com/84919892/182428225-eb7fba60-9246-44aa-8bc0-e758b4d5b26a.png)
