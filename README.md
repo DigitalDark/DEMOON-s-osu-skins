@@ -36,6 +36,9 @@ another kamui edit awawawawawa - https://www.mediafire.com/file/oym6ijrhda8hexo/
 Noel Chan + Dots - https://www.mediafire.com/file/v6x8w87wy11fejv/-+#+Noel+Chan+++Dots.osk/file (srry for bad screenshot, gonna make a new one later)
 ![screenshot060](https://user-images.githubusercontent.com/84919892/182428225-eb7fba60-9246-44aa-8bc0-e758b4d5b26a.png)
 
+aetrna instafade mix - https://www.mediafire.com/file/v16kq0q5konjkym/aetrna+instafade+mix.osk/file
+![screenshot127](https://user-images.githubusercontent.com/84919892/191315342-9819d78e-e6f6-437c-b616-c60cb840089e.jpg)
+
 DigitalDark 05.04.2022 - https://www.mediafire.com/file/2ypui045kj4xw8f/DigitalDark+05.04.2022.osk/file
 ![screenshot632](https://user-images.githubusercontent.com/84919892/161778296-50b609ac-3cac-4932-bd82-52a38d301c96.png)
 
