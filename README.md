@@ -1,8 +1,8 @@
 # DEMOON-s-osu-skins (now my nickname is DigitalDark)
 D E M O O N's osu! skins (not all of them). if you want me to add some skins dm me on discord: Your Living Nightmare#2368 
 
-####LAST UPLOADED SKINS ARE ON BOTTOM! 
-Current Skin : BlooMoon Edit
+####LAST UPLOADED SKINS ARE ON BOTTOM! (quick notice: not annymore, now theyre on top) 
+Current Skin : idk myself
 -------------------------------------------------
 
 My Hp Bar + Score Numbers - [scorebar.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192598/scorebar.zip)
@@ -14,6 +14,15 @@ Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins
 ![scorebar-bg@2x](https://user-images.githubusercontent.com/84919892/133937256-caf3379b-f17b-4f91-892a-0eac504d436c.png)
 
 -------------------------------------------------
+
+seiken nante iranai edit v2 (lost the v1) - https://www.mediafire.com/file/4sh845xelkdka02/seiken_nante_iranai_edit_v2.osk/file
+![screenshot116](https://user-images.githubusercontent.com/84919892/191260476-1c94609f-a6ee-4e9c-8bec-c417447b8a5c.jpg)
+
+another kamui edit awawawawawa - https://www.mediafire.com/file/oym6ijrhda8hexo/another_kamui_edit_awawawawawawawawawawawawawawawa.osk/file
+![screenshot117](https://user-images.githubusercontent.com/84919892/191260542-4e360f01-e762-4e51-b9c5-7b5c7cbfdd85.jpg)
+
+-#-B- RizerAristia - [EDIT] - https://www.mediafire.com/file/eoks9zebg4t9ccw/-#-B-+RizerAristia+-+[EDIT].osk/file
+![screenshot114](https://user-images.githubusercontent.com/84919892/191260012-fb87f4d1-02d0-472e-b0de-5e96e7844d29.jpg)
 
 t160 - https://www.mediafire.com/file/tv08jb1rxz0egyg/t160.osk/file
 ![screenshot425](https://user-images.githubusercontent.com/84919892/132959010-ab77f879-9d4f-4f07-831c-3298dae8edbe.png)
