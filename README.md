@@ -14,6 +14,8 @@ Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins
 ![scorebar-bg@2x](https://user-images.githubusercontent.com/84919892/133937256-caf3379b-f17b-4f91-892a-0eac504d436c.png)
 
 -------------------------------------------------
+- firebat92+strawberry+remake - https://www.mediafire.com/file/a171nmas5kloy7l/-+firebat92+strawberry+remake.osk/file
+![screenshot120](https://user-images.githubusercontent.com/84919892/191268633-42acd438-a4eb-44cb-8cd2-9bb4b12f6c31.jpg)
 
 seiken nante iranai edit v2 (lost the v1) - https://www.mediafire.com/file/4sh845xelkdka02/seiken_nante_iranai_edit_v2.osk/file
 ![screenshot116](https://user-images.githubusercontent.com/84919892/191260476-1c94609f-a6ee-4e9c-8bec-c417447b8a5c.jpg)
