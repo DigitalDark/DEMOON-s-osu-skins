@@ -5,7 +5,7 @@ D E M O O N's (now  DigitalDark's) osu! skins (not all of them). if you want me 
 Current Skin : idk myself
 -------------------------------------------------
 
-My Hp Bar + Score Numbers - [scorebar.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192598/scorebar.zip)
+New Hp Bar + Score Numbers (lost the psd for it srry) - [scorebar.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192598/scorebar.zip)
 ![123](https://user-images.githubusercontent.com/84919892/133926392-756428aa-f754-4576-8f7b-339cb8ee7181.png)
 
 -------------------------------------------------
