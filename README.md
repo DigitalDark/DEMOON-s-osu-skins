@@ -29,6 +29,12 @@ another kamui edit awawawawawa - https://www.mediafire.com/file/oym6ijrhda8hexo/
 -#-B- RizerAristia - [EDIT] - https://www.mediafire.com/file/eoks9zebg4t9ccw/-#-B-+RizerAristia+-+[EDIT].osk/file
 ![screenshot114](https://user-images.githubusercontent.com/84919892/191260012-fb87f4d1-02d0-472e-b0de-5e96e7844d29.jpg)
 
+Noel Chan + Dots - https://www.mediafire.com/file/v6x8w87wy11fejv/-+#+Noel+Chan+++Dots.osk/file (srry for bad screenshot, gonna make a new one later)
+![screenshot060](https://user-images.githubusercontent.com/84919892/182428225-eb7fba60-9246-44aa-8bc0-e758b4d5b26a.png)
+
+DigitalDark 05.04.2022 - https://www.mediafire.com/file/2ypui045kj4xw8f/DigitalDark+05.04.2022.osk/file
+![screenshot632](https://user-images.githubusercontent.com/84919892/161778296-50b609ac-3cac-4932-bd82-52a38d301c96.png)
+
 t160 - https://www.mediafire.com/file/tv08jb1rxz0egyg/t160.osk/file
 ![screenshot425](https://user-images.githubusercontent.com/84919892/132959010-ab77f879-9d4f-4f07-831c-3298dae8edbe.png)
 
@@ -134,9 +140,6 @@ D E M O O N Gray - https://www.mediafire.com/file/0ihurxc9hmgkw2w/-+D+E+M+O+O+N+
 Koyoko [DMN] - https://www.mediafire.com/file/ax5iknwliazukfm/-++++Koyoko+[DMN].osk/file
 ![screenshot534](https://user-images.githubusercontent.com/84919892/141368382-4bebed88-31e8-4663-b05d-c83547a0f9f4.png)
 
-DigitalDark 05.04.2022 - https://www.mediafire.com/file/2ypui045kj4xw8f/DigitalDark+05.04.2022.osk/file
-![screenshot632](https://user-images.githubusercontent.com/84919892/161778296-50b609ac-3cac-4932-bd82-52a38d301c96.png)
-
 LOLFlashlight-2k18 - https://osuskins.net/skin/tj3odhA
 ![screenshot643](https://user-images.githubusercontent.com/84919892/162577434-2f875e9b-45cf-4b28-86a7-e22997d50a95.png)
 
@@ -157,6 +160,3 @@ Dunois+Effervescence - https://mizaru.s-ul.eu/hpxh7QMV
 
 Reminya[1.0] - https://osuskins.net/skin/dIz0zsC
 ![dIz0zsC](https://user-images.githubusercontent.com/84919892/175804968-93e296c7-30d7-465c-b486-ee092620ec2b.jpg)
-
-Noel Chan + Dots - https://www.mediafire.com/file/v6x8w87wy11fejv/-+#+Noel+Chan+++Dots.osk/file (srry for bad screenshot, gonna make a new one later)
-![screenshot060](https://user-images.githubusercontent.com/84919892/182428225-eb7fba60-9246-44aa-8bc0-e758b4d5b26a.png)
