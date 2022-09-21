@@ -15,6 +15,9 @@ Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins
 
 -------------------------------------------------
 
+Yoshi mune gimu ne munegimunemashirubesuta - https://www.mediafire.com/file/829gikfydghsnff/-++Yoshi+mune+gimu+ne+gimune+gimu+negi+munegimunemashirubesuta.osk/file
+![screenshot130](https://user-images.githubusercontent.com/84919892/191530556-b6b82da7-ecb1-4dec-a622-f129acd603c3.jpg)
+
 wewoowooooooo - https://www.mediafire.com/file/dc32fivm7pwxkyt/-++wewoowooooooo.osk/file
 ![screenshot125](https://user-images.githubusercontent.com/84919892/191313833-58a4d521-33b8-48bf-b449-882284036d12.jpg)
 
