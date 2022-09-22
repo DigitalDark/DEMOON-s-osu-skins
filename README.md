@@ -15,6 +15,12 @@ Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins
 
 -------------------------------------------------
 
+DigitalDark 08.04.2022 - 
+![screenshot143](https://user-images.githubusercontent.com/84919892/191805020-77f9e6b5-e7be-40ce-9fd9-d03f5edf4e85.jpg)
+
+D E M O O N + RyuK (Dec.2021) - https://www.mediafire.com/file/cztzqhadas3l8tk/-+D+E+M+O+O+N+++Ryuk.osk/file
+![screenshot139](https://user-images.githubusercontent.com/84919892/191804882-50c0221b-454c-4f36-b6b5-f620b22f388c.jpg)
+
 kune259 edit - https://www.mediafire.com/file/2cu6oq8lugujugy/-+kunkuneeeeeeee.osk/file
 ![screenshot137](https://user-images.githubusercontent.com/84919892/191781748-8899ac69-cd84-4ab1-b958-182c1e21eea7.jpg)
 
