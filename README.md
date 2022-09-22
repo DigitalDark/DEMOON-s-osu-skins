@@ -2,7 +2,7 @@
 D E M O O N's (now  DigitalDark's) osu! skins (not all of them). if you want me to add some skins, or you found some of my lost skins, dm me on discord: Your Living Nightmare#2368 
 
 ####LAST UPLOADED SKINS ARE ON BOTTOM! (quick notice: not annymore, now theyre on top) 
-Current Skin : idk myself
+Current Skin : kune edit
 -------------------------------------------------
 
 New Hp Bar + Score Numbers (lost the psd for it srry) - [scorebar.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192598/scorebar.zip)
@@ -14,6 +14,7 @@ Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins
 ![scorebar-bg@2x](https://user-images.githubusercontent.com/84919892/133937256-caf3379b-f17b-4f91-892a-0eac504d436c.png)
 
 -------------------------------------------------
+
 
 Yoshi mune gimu ne munegimunemashirubesuta - https://www.mediafire.com/file/829gikfydghsnff/-++Yoshi+mune+gimu+ne+gimune+gimu+negi+munegimunemashirubesuta.osk/file
 ![screenshot130](https://user-images.githubusercontent.com/84919892/191530556-b6b82da7-ecb1-4dec-a622-f129acd603c3.jpg)
