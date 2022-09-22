@@ -16,7 +16,7 @@ Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins
 -------------------------------------------------
 
 AlacrityEDIT - https://www.mediafire.com/file/egmjt3texyt1bw1/-+AlacrityEDIT.osk/file
-![Uploading screenshot145.jpg…]()
+![screenshot145](https://user-images.githubusercontent.com/84919892/191810974-0e7211ad-a659-4ead-b5e7-e71865b1bfa7.jpg)
 
 DigitalDark 08.04.2022 - https://www.mediafire.com/file/v5ww4ebd5iyjfki/-+DigitalDark+08.04.2022.osk/file
 ![screenshot143](https://user-images.githubusercontent.com/84919892/191805020-77f9e6b5-e7be-40ce-9fd9-d03f5edf4e85.jpg)
