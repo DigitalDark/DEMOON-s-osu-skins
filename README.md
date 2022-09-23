@@ -15,6 +15,9 @@ Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins
 
 -------------------------------------------------
 
+AePrismthetic - aka Konraduser_Aesthetic - https://www.mediafire.com/file/7gz5zrsf8aqr43j/AePrismthetic+-.osk/file
+![screenshot151](https://user-images.githubusercontent.com/84919892/191999973-0e780f73-3873-43f0-a502-01b528387467.jpg)
+
 NekoCats - https://www.mediafire.com/file/ichltdxm9g0eosu/NekoCats.osk/file
 ![screenshot150](https://user-images.githubusercontent.com/84919892/191963791-d31983a7-c499-4f35-9ac7-41be937004fb.jpg)
 
