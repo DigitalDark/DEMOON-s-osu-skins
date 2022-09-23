@@ -15,6 +15,12 @@ Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins
 
 -------------------------------------------------
 
+bruh v3 - https://www.mediafire.com/file/7tmrcjmdovrvl09/bruh+v3.osk/file
+![screenshot148](https://user-images.githubusercontent.com/84919892/191962969-4d59771c-22fd-4b32-967e-09280747fc5a.jpg)
+
+D E M O O N V3.8 - https://www.mediafire.com/file/9dm1v9z44413q2e/-__D_E_M_O_O_N__V3.8.osk/file
+![screenshot147](https://user-images.githubusercontent.com/84919892/191962126-ce8db59f-8003-4186-9d72-f658d5c147a1.jpg)
+
 AlacrityEDIT - https://www.mediafire.com/file/egmjt3texyt1bw1/-+AlacrityEDIT.osk/file
 ![screenshot145](https://user-images.githubusercontent.com/84919892/191810974-0e7211ad-a659-4ead-b5e7-e71865b1bfa7.jpg)
 
