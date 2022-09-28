@@ -15,6 +15,9 @@ Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins
 
 -------------------------------------------------
 
+Sakuraoto - https://www.mediafire.com/file/cz1vwg5wilzb78q/Sakuraoto.osk/file
+![screenshot161](https://user-images.githubusercontent.com/84919892/192833626-58dc1860-03de-4bc8-bccc-06b9a3edecb2.jpg)
+
 kaimu 1.5 - https://www.mediafire.com/file/8oubp6wiqwbv61k/kaimu+1.5.osk/file
 ![screenshot153](https://user-images.githubusercontent.com/84919892/192295777-074a9897-bec7-4a41-9e7d-c591b7139e86.jpg)
 
@@ -23,12 +26,6 @@ AePrismthetic - aka Konraduser_Aesthetic - https://www.mediafire.com/file/7gz5zr
 
 NekoCats - https://www.mediafire.com/file/ichltdxm9g0eosu/NekoCats.osk/file
 ![screenshot150](https://user-images.githubusercontent.com/84919892/191963791-d31983a7-c499-4f35-9ac7-41be937004fb.jpg)
-
-bruh v3 - https://www.mediafire.com/file/7tmrcjmdovrvl09/bruh+v3.osk/file
-![screenshot148](https://user-images.githubusercontent.com/84919892/191962969-4d59771c-22fd-4b32-967e-09280747fc5a.jpg)
-
-D E M O O N V3.8 - https://www.mediafire.com/file/9dm1v9z44413q2e/-__D_E_M_O_O_N__V3.8.osk/file
-![screenshot147](https://user-images.githubusercontent.com/84919892/191962126-ce8db59f-8003-4186-9d72-f658d5c147a1.jpg)
 
 AlacrityEDIT - https://www.mediafire.com/file/egmjt3texyt1bw1/-+AlacrityEDIT.osk/file
 ![screenshot145](https://user-images.githubusercontent.com/84919892/191810974-0e7211ad-a659-4ead-b5e7-e71865b1bfa7.jpg)
@@ -113,6 +110,9 @@ E810 - https://www.mediafire.com/file/cdhnhvxrqtsnc6h/E810.osk/file
 
 Asriel+COBO+Edit - https://www.mediafire.com/file/yd97iqniq9yioq6/Asriel%252BCOBO%252BEdit.osk/file
 ![screenshot420](https://user-images.githubusercontent.com/84919892/132959195-1aee7744-8455-4456-99ec-8a1a7880a377.png)
+
+D E M O O N V3.8 - https://www.mediafire.com/file/9dm1v9z44413q2e/-__D_E_M_O_O_N__V3.8.osk/file
+![screenshot147](https://user-images.githubusercontent.com/84919892/191962126-ce8db59f-8003-4186-9d72-f658d5c147a1.jpg)
 
 SeoulEdit - https://www.mediafire.com/file/pu1pinppuhcn8dt/SeoulEdit.osk/file
 ![screenshot440](https://user-images.githubusercontent.com/84919892/132959928-d2c45225-1989-4674-8205-4e2f63ebf756.png)
