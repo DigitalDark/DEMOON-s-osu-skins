@@ -1,8 +1,8 @@
 # DEMOON-s-osu-skins 
-D E M O O N's (now  DigitalDark's) osu! skins (not all of them). if you want me to add some skins, or you found some of my lost skins, dm me on discord: Your Living Nightmare#2368 
+D E M O O N's (now  DigitalDark's) osu! skin collection (obviously not all of them). if you want me to add some skins, or you found some of my lost skins, dm me on discord: Your Living Nightmare#2368 
 
 ####LAST UPLOADED SKINS ARE ON BOTTOM! (quick notice: not annymore, now theyre on top) 
-Current Skin : AePrismthetic - 
+Current Skin : AePrimestetic -
 -------------------------------------------------
 
 New Hp Bar + Score Numbers (lost the psd for it srry) - [scorebar.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192598/scorebar.zip)
