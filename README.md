@@ -5,7 +5,7 @@ D E M O O N's (now  DigitalDark's) osu! skin collection (obviously not all of th
 Current Skin : AePrimestetic -
 -------------------------------------------------
 
-gonna make a 2nd github for nara's skins
+nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
 -------------------------------------------------
 Sakuraoto - https://www.mediafire.com/file/cz1vwg5wilzb78q/Sakuraoto.osk/file
