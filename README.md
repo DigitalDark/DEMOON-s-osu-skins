@@ -5,19 +5,9 @@ D E M O O N's (now  DigitalDark's) osu! skin collection (obviously not all of th
 Current Skin : AePrimestetic -
 -------------------------------------------------
 
-New Hp Bar + Score Numbers (lost the psd for it srry) - [scorebar.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192598/scorebar.zip)
-![123](https://user-images.githubusercontent.com/84919892/133926392-756428aa-f754-4576-8f7b-339cb8ee7181.png)
+gonna make a 2nd github for nara's skins
 
 -------------------------------------------------
-
-Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins/files/7192596/scorebarOLD.zip)
-![scorebar-bg@2x](https://user-images.githubusercontent.com/84919892/133937256-caf3379b-f17b-4f91-892a-0eac504d436c.png)
-
--------------------------------------------------
-
-Nara v5.0 - https://www.mediafire.com/file/nfbmz8c7kulu5gy/Nara+5.0.osk/file
-![screenshot318](https://user-images.githubusercontent.com/84919892/193336027-3dbcc393-27f5-4d39-adf5-96e763cf8043.jpg)
-
 Sakuraoto - https://www.mediafire.com/file/cz1vwg5wilzb78q/Sakuraoto.osk/file
 ![screenshot161](https://user-images.githubusercontent.com/84919892/192833626-58dc1860-03de-4bc8-bccc-06b9a3edecb2.jpg)
 
