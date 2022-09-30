@@ -15,6 +15,9 @@ Old Hp Bar - [scorebarOLD.zip](https://github.com/DigitalDark/DEMOON-s-osu-skins
 
 -------------------------------------------------
 
+Nara v5.0 - https://www.mediafire.com/file/nfbmz8c7kulu5gy/Nara+5.0.osk/file
+![screenshot318](https://user-images.githubusercontent.com/84919892/193336027-3dbcc393-27f5-4d39-adf5-96e763cf8043.jpg)
+
 Sakuraoto - https://www.mediafire.com/file/cz1vwg5wilzb78q/Sakuraoto.osk/file
 ![screenshot161](https://user-images.githubusercontent.com/84919892/192833626-58dc1860-03de-4bc8-bccc-06b9a3edecb2.jpg)
 
