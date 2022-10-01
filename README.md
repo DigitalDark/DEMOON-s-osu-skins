@@ -9,6 +9,9 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
 -------------------------------------------------
 
+CeilingWaffle+Instafade - https://www.mediafire.com/file/cw660wtgkjfoi7s/CeilingWaffle+20190911.osk/file\
+![screenshot189](https://user-images.githubusercontent.com/84919892/193410784-76c54259-fbfc-48b2-b507-b7fb4d690b8f.jpg)
+
 Toke - Natsukihina - https://mega.nz/file/JPhBUSaY#TWNRXevz0994QVoqo9077LrdyLEGKJJyzUROnsGkAYQ | from baron6060's github
 ![185669922-76e1c9e4-3302-47fe-bc2c-d652838d29e0](https://user-images.githubusercontent.com/84919892/193405672-37f69a6f-3438-42d5-af9c-7b1f120fba6f.jpg)
 
