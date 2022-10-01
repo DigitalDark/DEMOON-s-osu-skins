@@ -9,7 +9,7 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
 -------------------------------------------------
 
-jclsdjfjdpoywys aka CeilingWaffle skin but edited - https://www.mediafire.com/file/t0leksgkcncxhfy/jclsdjfjdpoywys+aka+CeilingWaffle+skin+but+edited.osk/file
+jclsdjfjdpoywys v1 aka CeilingWaffle skin but edited - https://www.mediafire.com/file/t0leksgkcncxhfy/jclsdjfjdpoywys+aka+CeilingWaffle+skin+but+edited.osk/file
 ![screenshot189](https://user-images.githubusercontent.com/84919892/193410784-76c54259-fbfc-48b2-b507-b7fb4d690b8f.jpg)
 
 Toke - Natsukihina - https://mega.nz/file/JPhBUSaY#TWNRXevz0994QVoqo9077LrdyLEGKJJyzUROnsGkAYQ | from baron6060's github
