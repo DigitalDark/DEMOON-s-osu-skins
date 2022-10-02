@@ -9,9 +9,6 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
 -------------------------------------------------
 
-Aristia(lirua+DigitalDark Edit) - https://www.mediafire.com/file/vg1tyuch0r1nypy/Aristia(lirua+DigitalDark+Edit).osk/fileAristia
-![screenshot200](https://user-images.githubusercontent.com/84919892/193423356-d8d304fe-5921-4d71-b18e-bd6dd15bb88b.jpg)
-
 jclsdjfjdpoywys v1 aka CeilingWaffle skin but edited - https://www.mediafire.com/file/t0leksgkcncxhfy/jclsdjfjdpoywys+aka+CeilingWaffle+skin+but+edited.osk/file
 ![screenshot189](https://user-images.githubusercontent.com/84919892/193410784-76c54259-fbfc-48b2-b507-b7fb4d690b8f.jpg)
 
