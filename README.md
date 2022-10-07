@@ -2,12 +2,15 @@
 D E M O O N's (now  DigitalDark's) osu! skin collection (obviously not all of them). if you want me to add some skins, or you found some of my lost skins, dm me on discord: Your Living Nightmare#2368 
 
 ####LAST UPLOADED SKINS ARE ON BOTTOM! (quick notice: not annymore, now theyre on top) 
-Current Skin : AePrimestetic -
+Current Skin : GreenTea EDIT
 -------------------------------------------------
 
 nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
 -------------------------------------------------
+
+GreenTea [EDIT] - https://www.mediafire.com/file/4kpl0yx3uedvei8/#-K-+GreenTea+[EDIT].osk/file
+![screenshot219](https://user-images.githubusercontent.com/84919892/194582893-1476a82b-b743-410b-81dd-70c40593c510.jpg)
 
 jclsdjfjdpoywys v1 aka CeilingWaffle skin but edited - https://www.mediafire.com/file/t0leksgkcncxhfy/jclsdjfjdpoywys+aka+CeilingWaffle+skin+but+edited.osk/file
 ![screenshot189](https://user-images.githubusercontent.com/84919892/193410784-76c54259-fbfc-48b2-b507-b7fb4d690b8f.jpg)
