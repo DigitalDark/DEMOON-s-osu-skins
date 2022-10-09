@@ -9,6 +9,10 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
 -------------------------------------------------
 
+Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
+
+-------------------------------------------------
+
 GreenTea [EDIT] - https://www.mediafire.com/file/4kpl0yx3uedvei8/#-K-+GreenTea+[EDIT].osk/file
 ![screenshot219](https://user-images.githubusercontent.com/84919892/194582893-1476a82b-b743-410b-81dd-70c40593c510.jpg)
 
