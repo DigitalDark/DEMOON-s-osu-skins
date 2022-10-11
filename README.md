@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+bahamete (Yamemasita mod v2) - https://www.mediafire.com/file/3gr4kba2brv96lo/-+bahamete+(Yamemasita+mod+v2).osk/file
+![screenshot230](https://user-images.githubusercontent.com/84919892/195117386-f3ea18dd-3de3-4ccc-8d04-0ccfdc844788.png)
+
 GreenTea [EDIT] - https://www.mediafire.com/file/4kpl0yx3uedvei8/#-K-+GreenTea+[EDIT].osk/file
 ![screenshot219](https://user-images.githubusercontent.com/84919892/194582893-1476a82b-b743-410b-81dd-70c40593c510.jpg)
 
