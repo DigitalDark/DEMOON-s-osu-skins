@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+KomoriEDIT - Chino-chan - https://www.mediafire.com/file/blv46a0dkhgau3r/KomoriEDIT+-+Chino-chan.osk/file
+![screenshot236](https://user-images.githubusercontent.com/84919892/195379335-a1efd745-2e22-482c-8164-d9a067151322.png)
+
 Ryuk Aesthetic V2 - https://www.mediafire.com/file/woz7twn706o9zh3/Ryuk+Aesthetic+V2.osk/file
 ![screenshot234](https://user-images.githubusercontent.com/84919892/195373142-ff64dbb8-9aae-472b-8555-388d0a48eeb9.png)
 
