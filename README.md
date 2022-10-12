@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+Ryuk Aesthetic V2 - https://www.mediafire.com/file/woz7twn706o9zh3/Ryuk+Aesthetic+V2.osk/file
+![screenshot234](https://user-images.githubusercontent.com/84919892/195373142-ff64dbb8-9aae-472b-8555-388d0a48eeb9.png)
+
 Uberlegen Skin beta9 - https://www.mediafire.com/file/lfwet69y752vi36/Uberlegen+Skin+beta9.osk/file
 ![screenshot231](https://user-images.githubusercontent.com/84919892/195357612-20d0aba7-b41c-455f-81ef-bcc0e9658531.png)
 
