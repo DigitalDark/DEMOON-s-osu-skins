@@ -13,6 +13,12 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+「 105°C Chocolate 」- https://www.mediafire.com/file/hzuhkewjtz35zi6/「+105°C+Chocolate+」.osk/file
+![screenshot240](https://user-images.githubusercontent.com/84919892/195592520-d2622275-0c6b-4377-9371-01eb5bf13f8d.png)
+
+Ryuk Rafis Toy Slightly Edited - https://www.mediafire.com/file/uhv84ef2fdw740q/-+Ryuk+Rafis+Toy+Slightly+Edited.osk/file
+![screenshot239](https://user-images.githubusercontent.com/84919892/195591963-2429d0e5-da1d-424b-a9e4-23a88fed6996.png)
+
 KomoriEDIT - Chino-chan - https://www.mediafire.com/file/blv46a0dkhgau3r/KomoriEDIT+-+Chino-chan.osk/file
 ![screenshot236](https://user-images.githubusercontent.com/84919892/195379335-a1efd745-2e22-482c-8164-d9a067151322.png)
 
