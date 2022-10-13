@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+owoTuna {EDIT} 『Mathi』- https://www.mediafire.com/file/xx6c9gw9f1174x6/-++++++#+owoTuna+{EDIT}+『Mathi』+#.osk/file
+![screenshot241](https://user-images.githubusercontent.com/84919892/195600786-5700e13c-ec6d-4cc1-a281-959159cd7c14.png)
+
 「 105°C Chocolate 」- https://www.mediafire.com/file/hzuhkewjtz35zi6/「+105°C+Chocolate+」.osk/file
 ![screenshot240](https://user-images.githubusercontent.com/84919892/195592520-d2622275-0c6b-4377-9371-01eb5bf13f8d.png)
 
