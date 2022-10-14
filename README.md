@@ -15,6 +15,13 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+owoTuna {EDIT} (V2)『Mathi』- https://www.mediafire.com/file/81am708ek9aaptr/-++++++#+owoTuna+{EDIT}+V2+『Mathi』+#.osk/file
+Changes: ScorebarBG (has psd template inside), sliderendcircle has glow now!
+![screenshot245](https://user-images.githubusercontent.com/84919892/195824453-ce21668e-2dbc-4b3a-8112-58b7542d0278.png)
+
+owoTuna {EDIT} (V1)『Mathi』- https://www.mediafire.com/file/xx6c9gw9f1174x6/-++++++#+owoTuna+{EDIT}+『Mathi』+#.osk/file
+![screenshot241](https://user-images.githubusercontent.com/84919892/195600786-5700e13c-ec6d-4cc1-a281-959159cd7c14.png)
+
 「 105°C Chocolate 」- https://www.mediafire.com/file/hzuhkewjtz35zi6/「+105°C+Chocolate+」.osk/file
 ![screenshot240](https://user-images.githubusercontent.com/84919892/195592520-d2622275-0c6b-4377-9371-01eb5bf13f8d.png)
 
