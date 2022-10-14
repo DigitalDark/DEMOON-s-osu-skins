@@ -7,8 +7,6 @@ Current Skin : GreenTea EDIT
 
 nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
-owoTuna Edit Series - https://github.com/DigitalDark/owoTunaEdits/blob/main/README.md
-
 -------------------------------------------------
 
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
