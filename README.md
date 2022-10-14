@@ -7,7 +7,7 @@ Current Skin : GreenTea EDIT
 
 nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
-owoTuna Edit Series - 
+owoTuna Edit Series - https://github.com/DigitalDark/owoTunaEdits/blob/main/README.md
 
 -------------------------------------------------
 
