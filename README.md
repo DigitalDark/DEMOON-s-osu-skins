@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+DigitalDark 10.14.2022 - https://www.mediafire.com/file/uwszgw1q91sqq4q/-+DigitalDark+10.14.2022.osk/file
+![screenshot247](https://user-images.githubusercontent.com/84919892/195845568-59440253-51c5-41b6-93f9-13d477b5150f.png)
+
 owoTuna {EDIT} (V2)『Mathi』- https://www.mediafire.com/file/81am708ek9aaptr/-++++++#+owoTuna+{EDIT}+V2+『Mathi』+#.osk/file
 Changes: ScorebarBG (has psd template inside), sliderendcircle has glow now!
 ![screenshot245](https://user-images.githubusercontent.com/84919892/195824453-ce21668e-2dbc-4b3a-8112-58b7542d0278.png)
