@@ -7,14 +7,13 @@ Current Skin : GreenTea EDIT
 
 nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
+owoTuna Edit Series - 
+
 -------------------------------------------------
 
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
-
-owoTuna {EDIT} 『Mathi』- https://www.mediafire.com/file/xx6c9gw9f1174x6/-++++++#+owoTuna+{EDIT}+『Mathi』+#.osk/file
-![screenshot241](https://user-images.githubusercontent.com/84919892/195600786-5700e13c-ec6d-4cc1-a281-959159cd7c14.png)
 
 「 105°C Chocolate 」- https://www.mediafire.com/file/hzuhkewjtz35zi6/「+105°C+Chocolate+」.osk/file
 ![screenshot240](https://user-images.githubusercontent.com/84919892/195592520-d2622275-0c6b-4377-9371-01eb5bf13f8d.png)
