@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+EasternDream V3 - https://www.mediafire.com/file/94ptsw6gtkradm8/##EasternDream+V3.osk/file
+![screenshot252](https://user-images.githubusercontent.com/84919892/195981356-9e2dc8b0-6886-432d-bba2-785b47d2437e.png)
+
 DigitalDark 10.14.2022 - https://www.mediafire.com/file/uwszgw1q91sqq4q/-+DigitalDark+10.14.2022.osk/file
 ![screenshot247](https://user-images.githubusercontent.com/84919892/195845568-59440253-51c5-41b6-93f9-13d477b5150f.png)
 
