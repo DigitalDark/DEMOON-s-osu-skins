@@ -13,6 +13,18 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+Cherry+Blossoms - https://www.mediafire.com/file/zzrjuhybqnhbj7z/Cherry+Blossoms.osk/file
+![screenshot269](https://user-images.githubusercontent.com/84919892/195983747-5716f772-400d-4ca9-82e7-e43d194117fc.png)
+
+i-SokaV2 - https://www.mediafire.com/file/4jovq4uxztu2ai0/i~sokav2.osk/file
+![screenshot267](https://user-images.githubusercontent.com/84919892/195983588-95a4e13d-4685-43cd-9775-55dfc3cc35f3.png)
+
+abGarin - https://www.mediafire.com/file/1rr0vck4x8e8tsq/abGarin.osk/file
+![screenshot266](https://user-images.githubusercontent.com/84919892/195983423-315f9f4d-3d53-4502-90d0-8bc578698ed3.png)
+
+Critanya V2.0 - https://www.mediafire.com/file/e66zi4xgxputbvg/Critanya+v2.0.osk/file
+![screenshot265](https://user-images.githubusercontent.com/84919892/195983180-8a2b6d38-1f88-4797-a4c7-0425713efaeb.png)
+
 Kantoku - https://www.mediafire.com/file/zuwavrurab46dnx/Kantoku.osk/file
 ![screenshot264](https://user-images.githubusercontent.com/84919892/195982970-771c344c-3b6b-4140-bf0e-905bd87968e4.png)
 
