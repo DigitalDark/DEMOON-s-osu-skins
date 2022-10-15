@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+Aesthtic (Rinkus V2) - https://www.mediafire.com/file/4l3inwm5hnj7irw/Aesthetic+(Rinku+V2).osk/file
+![screenshot271](https://user-images.githubusercontent.com/84919892/195991958-bde7f383-fa11-4f26-addc-c38d03cebb31.png)
+
 EasternDream V3 - https://www.mediafire.com/file/94ptsw6gtkradm8/##EasternDream+V3.osk/file
 ![screenshot252](https://user-images.githubusercontent.com/84919892/195981356-9e2dc8b0-6886-432d-bba2-785b47d2437e.png)
 
