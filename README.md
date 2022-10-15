@@ -1,5 +1,5 @@
 # DEMOON-s-osu-skins 
-D E M O O N's (now  DigitalDark's) osu! skin collection (obviously not all of them). if you want me to add some skins, or you found some of my lost skins, dm me on discord: Your Living Nightmare#2368 
+D E M O O N's (now  DigitalDark's) osu! skin collection (obviously not all of them).I just add skins i enjoy and like! if you want me to add some skins, or you found some of my lost skins, dm me on discord: Your Living Nightmare#2368 
 
 ####LAST UPLOADED SKINS ARE ON BOTTOM! (quick notice: not annymore, now theyre on top) 
 Current Skin : GreenTea EDIT
@@ -12,6 +12,18 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+
+Kantoku - https://www.mediafire.com/file/zuwavrurab46dnx/Kantoku.osk/file
+![screenshot264](https://user-images.githubusercontent.com/84919892/195982970-771c344c-3b6b-4140-bf0e-905bd87968e4.png)
+
+Aesthetic+1.2+(Nyrox) - https://www.mediafire.com/file/erudh60s9s5c512/Aesthetic+1.2+(Nyrox).osk/file
+![screenshot263](https://user-images.githubusercontent.com/84919892/195982835-176a0d3d-a926-4fab-b3d7-cf8980a6986f.png)
+
+Aesthetic 1.2 (AndruChristo) - https://www.mediafire.com/file/vinmnszlf8p6xuv/Aesthetic+1.2+(AndruChristo).osk/file
+![screenshot262](https://user-images.githubusercontent.com/84919892/195982690-2e768c62-eaeb-48f8-990b-98363af5fde9.png)
+
+Aesthetic (Rinku's Edit) - https://www.mediafire.com/file/sqg2c1yjxufyc6z/Aesthetic+(Rinku's+Edit).osk/file
+![screenshot261](https://user-images.githubusercontent.com/84919892/195982494-997ba279-8b3c-4b42-9d87-9f6ff97c3c5d.png)
 
 Seoulless V6 (Kashima) - https://www.mediafire.com/file/vc10mcm9tz28llp/-+Seouless'+v6(Kashima).osk/file
 ![screenshot259](https://user-images.githubusercontent.com/84919892/195982373-757e843c-37de-4356-9c77-05519123fbdf.png)
