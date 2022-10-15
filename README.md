@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+Pandah 3.0 - https://www.mediafire.com/file/36qgo7wuexy1mll/#Pandah+3.0.osk/file
+![screenshot255](https://user-images.githubusercontent.com/84919892/195981724-cadd46f3-c365-4b21-80e0-d0aabd6e52cf.png)
+
 Endou+Saya+++Cookiezi - https://www.mediafire.com/file/a8h3881m1x3wute/Endou+Saya+++Cookiezi.osk/file
 ![screenshot254](https://user-images.githubusercontent.com/84919892/195981559-c83368af-661a-486c-95be-22e2bffde44d.png)
 
