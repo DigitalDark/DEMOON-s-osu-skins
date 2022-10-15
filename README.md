@@ -13,6 +13,15 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+Seoulless V6 (Kashima) - https://www.mediafire.com/file/vc10mcm9tz28llp/-+Seouless'+v6(Kashima).osk/file
+![screenshot259](https://user-images.githubusercontent.com/84919892/195982373-757e843c-37de-4356-9c77-05519123fbdf.png)
+
+Natume - https://www.mediafire.com/file/yyc4vq32ms8wwf2/Natsume-.osk/file
+![screenshot258](https://user-images.githubusercontent.com/84919892/195982220-aead593d-1bf8-4910-b30b-0b97671d6074.png)
+
+KURIYAMA 1.0 - https://www.mediafire.com/file/i2be702gnyelhx0/-+KURIYAMA+1.0+-.osk/file
+![screenshot256](https://user-images.githubusercontent.com/84919892/195981980-409c094c-122d-4afa-b527-e36325b1c778.png)
+
 Pandah 3.0 - https://www.mediafire.com/file/36qgo7wuexy1mll/#Pandah+3.0.osk/file
 ![screenshot255](https://user-images.githubusercontent.com/84919892/195981724-cadd46f3-c365-4b21-80e0-d0aabd6e52cf.png)
 
