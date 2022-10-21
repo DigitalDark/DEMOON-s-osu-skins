@@ -13,6 +13,15 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+Raimu Yumemi - https://www.mediafire.com/file/nfyjw0r9y7186o2/Riamu+Yumemi.osk/file
+![screenshot283](https://user-images.githubusercontent.com/84919892/197240622-59ea0b4b-94de-4e91-9e84-c3b2df96c7ab.png)
+
+BK_Rizer3.0_16by9+DigitalDark - https://www.mediafire.com/file/bl5j76kk0xpgzsb/-#-BK_Rizer3.0_16by9+DigitalDark.osk/file
+![screenshot280](https://user-images.githubusercontent.com/84919892/197239522-92a646fc-3880-4b31-800d-1e332d6e1a40.png)
+
+Deerless+Sakura - https://www.mediafire.com/file/h4qnpku0pmvcib3/-+Sakura+-.osk/file
+![screenshot282](https://user-images.githubusercontent.com/84919892/197239733-c2e075da-fe78-47d7-af91-9988074f1f00.png)
+
 DigitalDark-[10.17.2022] - https://www.mediafire.com/file/7s9cmff6nc3hsa2/-+DigitalDark-[10.17.2022].osk/file
 ![screenshot277](https://user-images.githubusercontent.com/84919892/196209402-0de4502c-b813-460e-889f-4ee5bb4deb1a.png)
 
