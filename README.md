@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+DigitalDark 10.22.2022 - https://www.mediafire.com/file/z8i308ug8a89pom/-+DigitalDark+10.22.2022.osk/file
+![screenshot287](https://user-images.githubusercontent.com/84919892/197342482-f620b13d-7e12-4315-9fd4-79cb5d450c73.png)
+
 Raimu Yumemi - https://www.mediafire.com/file/nfyjw0r9y7186o2/Riamu+Yumemi.osk/file
 ![screenshot283](https://user-images.githubusercontent.com/84919892/197240622-59ea0b4b-94de-4e91-9e84-c3b2df96c7ab.png)
 
