@@ -25,9 +25,6 @@ BK_Rizer3.0_16by9+DigitalDark - https://www.mediafire.com/file/bl5j76kk0xpgzsb/-
 Deerless+Sakura - https://www.mediafire.com/file/h4qnpku0pmvcib3/-+Sakura+-.osk/file
 ![screenshot282](https://user-images.githubusercontent.com/84919892/197239733-c2e075da-fe78-47d7-af91-9988074f1f00.png)
 
-DigitalDark-[10.17.2022] - https://www.mediafire.com/file/7s9cmff6nc3hsa2/-+DigitalDark-[10.17.2022].osk/file
-![screenshot277](https://user-images.githubusercontent.com/84919892/196209402-0de4502c-b813-460e-889f-4ee5bb4deb1a.png)
-
 Milkteaism+Lunar+vEDIT - https://www.mediafire.com/file/3qnd2xjdorb9zaz/Milkteaism+Lunar+vEDIT.osk/file
 ![screenshot272](https://user-images.githubusercontent.com/84919892/195992976-04ff2035-5926-44f1-a67e-e373a8454919.png)
 
