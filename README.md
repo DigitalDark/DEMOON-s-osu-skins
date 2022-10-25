@@ -2,7 +2,7 @@
 D E M O O N's (now  DigitalDark's) osu! skin collection (obviously not all of them).I just add skins i enjoy and like! if you want me to add some skins, or you found some of my lost skins, dm me on discord: Your Living Nightmare#2368 
 
 ####LAST UPLOADED SKINS ARE ON BOTTOM! (quick notice: not annymore, now theyre on top) 
-Current Skin : GreenTea EDIT
+Current Skin : hvick225 + D E M O O N
 -------------------------------------------------
 
 nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
