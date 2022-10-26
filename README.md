@@ -13,6 +13,15 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+idkeEDIT - https://www.mediafire.com/file/zfp74b2zqjtgnf3/idkeEDIT.osk/file
+![screenshot316](https://user-images.githubusercontent.com/84919892/198038449-aa5bf777-8281-4edb-b3f7-94aaeb2439a8.png)
+
+CryBloo EDIT - https://www.mediafire.com/file/efsiutvmlmj5ngs/-+『CryBloo』+[EDIT]-.osk/file
+![screenshot315](https://user-images.githubusercontent.com/84919892/198037690-dfb4a868-244d-4519-9cca-f6d3b33c5164.png)
+
+D E M O O N 05.03.2022 - https://www.mediafire.com/file/a3t4uxz6ox9bswr/D+E+M+O+O+N+05.03.2022.osk/file
+![screenshot311](https://user-images.githubusercontent.com/84919892/198036752-69458fa6-7e8a-4009-9752-7cfbe3f6fd78.png)
+
 hvick225 + D E M O O N (2020 Main Skin) - https://www.mediafire.com/file/kphhtihe0ebiy8k/hvick225+++D+E+M+O+O+N.osk/file
 ![screenshot309](https://user-images.githubusercontent.com/84919892/197858390-485b2d08-c244-48ef-9907-72e6f2207fc6.png)
 
