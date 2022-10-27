@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+DigitalDatko+CTB - https://www.mediafire.com/file/0tjg26z821w6arm/-+DigitalTaikoV1.1.osk/file
+![screenshot326](https://user-images.githubusercontent.com/84919892/198356858-c7420ed1-3590-4a59-8d39-73b8a6672d82.png)
+
 QuasiCrystalEDIT - https://www.mediafire.com/file/xfw9fsyflb6mv58/QuasiCrystalEDIT.osk/file
 ![screenshot322](https://user-images.githubusercontent.com/84919892/198221929-9a771040-279a-4ea8-930f-5be19cb1e468.png)
 
