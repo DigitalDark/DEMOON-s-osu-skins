@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+QuasiCrystalEDIT - https://www.mediafire.com/file/xfw9fsyflb6mv58/QuasiCrystalEDIT.osk/file
+![screenshot322](https://user-images.githubusercontent.com/84919892/198221929-9a771040-279a-4ea8-930f-5be19cb1e468.png)
+
 DigitalDark 9.28.2022 - https://www.mediafire.com/file/gosh03ed1d3vd2s/-+DigitalDark+9.28.2022.osk/file
 ![screenshot319](https://user-images.githubusercontent.com/84919892/198046399-a17a7384-c7f7-4acd-9ded-b871977234a7.png)
 
