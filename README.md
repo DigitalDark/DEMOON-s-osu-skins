@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+[Ryosuke + KecHik445] Kamui HQ - https://www.mediafire.com/file/3msbpkwmi1pzvlw/-+[Ryosuke+++KecHik445]+Kamui+HQ.osk/file
+![screenshot328](https://user-images.githubusercontent.com/84919892/198831255-9baa0773-8fbb-4fc4-a280-e6f7ef5458a1.png)
+
 DigitalTatko+CTB - https://www.mediafire.com/file/0tjg26z821w6arm/-+DigitalTaikoV1.1.osk/file
 ![screenshot326](https://user-images.githubusercontent.com/84919892/198356858-c7420ed1-3590-4a59-8d39-73b8a6672d82.png)
 
