@@ -13,6 +13,24 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+Garnet27+-gameplay Pure - https://www.mediafire.com/file/95urjn5o78gkv9j/Garnet27+-gameplay+Pure.osk/file
+![screenshot339](https://user-images.githubusercontent.com/84919892/198985471-6b5ba7cc-311d-4243-9151-964a436c017d.png)
+
+Monko Bliss - https://www.mediafire.com/file/h7ws5vt0sib8n4n/monko+bliss.osk/file
+![screenshot341](https://user-images.githubusercontent.com/84919892/198985420-dedec3b5-1cab-4a76-8309-246ba023dae9.png)
+
+live happily watr - https://www.mediafire.com/file/j9m8c4kqbl3xrpd/live+happily+watr+(aristia+fade).osk/file
+![screenshot345](https://user-images.githubusercontent.com/84919892/198985356-c822f270-31b2-4be4-b4a7-0255929fd9a9.png)
+
+Luciano HDHR - https://www.mediafire.com/file/7xsk41bazisuki0/Luciano+HDHR.osk/file
+![screenshot340](https://user-images.githubusercontent.com/84919892/198985256-78243d18-fb9a-4eb1-98e7-ce603cba19c9.png)
+
+simel mapping & modding - https://www.mediafire.com/file/zt16n7i60hbhi4e/-+shime!+mapping+&+modding.osk/file
+![screenshot342](https://user-images.githubusercontent.com/84919892/198985175-0fced530-ba0a-4499-b228-c42fe9b04ef0.png)
+
+Chitanda Rainbow - https://www.mediafire.com/file/tu11lp1f51y4sp2/chitanda+rainbow.osk/file
+![screenshot346](https://user-images.githubusercontent.com/84919892/198985010-e43b1d4a-2a61-4bd7-a753-48615b7ef7b2.png)
+
 [SistineFibel] - https://www.mediafire.com/file/enf73pb6s3x1gvf/[SistineFibel].osk/file
 ![screenshot332](https://user-images.githubusercontent.com/84919892/198831951-b61ad473-4123-441d-b35b-cca2ff10821f.png)
 
