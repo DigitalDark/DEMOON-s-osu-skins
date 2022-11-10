@@ -13,7 +13,7 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
-✧ Milk´ω｀Paws *:･ - https://www.mediafire.com/file/i07piqgn01dge65/✧+Milk´ω｀Paws+.osk/file
+✧ Milk ´ω｀Paws * - https://www.mediafire.com/file/i07piqgn01dge65/✧+Milk´ω｀Paws+.osk/file
 ![screenshot366](https://user-images.githubusercontent.com/84919892/201196381-9be71981-b0fd-46d4-8505-62ec3ab8bd09.png)
 
 Garnet27+-gameplay Pure - https://www.mediafire.com/file/95urjn5o78gkv9j/Garnet27+-gameplay+Pure.osk/file
