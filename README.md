@@ -16,6 +16,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 ✧ Milk ´ω｀Paws * - https://www.mediafire.com/file/i07piqgn01dge65/✧+Milk´ω｀Paws+.osk/file
 ![screenshot366](https://user-images.githubusercontent.com/84919892/201196381-9be71981-b0fd-46d4-8505-62ec3ab8bd09.png)
 
+fuyy (my 1st real skin) - https://www.mediafire.com/file/r6pervfa4lb3od6/-__fuyy.osk/file
+![screenshot372](https://user-images.githubusercontent.com/84919892/201201068-8f7278b5-b100-48a5-8209-1b4794949927.png)
+
 DigitalDark 6.11.2022 - https://www.mediafire.com/file/s608urbzu5lniet/DigitalDark+6.11.2022.osk/file
 ![screenshot369](https://user-images.githubusercontent.com/84919892/201197644-4339bae2-7860-46aa-aa8b-252b0a686278.png)
 
