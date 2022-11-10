@@ -16,6 +16,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 ✧ Milk ´ω｀Paws * - https://www.mediafire.com/file/i07piqgn01dge65/✧+Milk´ω｀Paws+.osk/file
 ![screenshot366](https://user-images.githubusercontent.com/84919892/201196381-9be71981-b0fd-46d4-8505-62ec3ab8bd09.png)
 
+DigitalDark 6.11.2022 - https://www.mediafire.com/file/s608urbzu5lniet/DigitalDark+6.11.2022.osk/file
+![screenshot369](https://user-images.githubusercontent.com/84919892/201197644-4339bae2-7860-46aa-aa8b-252b0a686278.png)
+
 Garnet27+-gameplay Pure - https://www.mediafire.com/file/95urjn5o78gkv9j/Garnet27+-gameplay+Pure.osk/file
 ![screenshot339](https://user-images.githubusercontent.com/84919892/198985471-6b5ba7cc-311d-4243-9151-964a436c017d.png)
 
