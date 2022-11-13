@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+SHIRONEKO 1.0 - https://www.mediafire.com/file/4kelj1e9z21rm8j/SHIRONEKO+1.0.osk/file
+![screenshot401](https://user-images.githubusercontent.com/84919892/201521998-a9caa9bc-3d73-4e70-a014-7ceecfad5c2c.png)
+
 rho+bunnygalaxy+slightEDIT - https://www.mediafire.com/file/qtjrweb8bdlgnwc/rho+bunnygalaxy+slightEDIT.osk/file
 ![screenshot399](https://user-images.githubusercontent.com/84919892/201521737-f10013b5-78e0-409b-884e-93273deb51d3.png)
 
