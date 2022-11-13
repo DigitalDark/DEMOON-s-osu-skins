@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+tzedit v4 - https://www.mediafire.com/file/zwi8z0vntlm5zxp/tzedit+v4.osk/file
+![screenshot408](https://user-images.githubusercontent.com/84919892/201530929-ed15f0e9-6660-4310-a274-c58932f0e797.png)
+
 Azer+ - https://www.mediafire.com/file/6a690slzluukbro/Azer+.osk/file
 ![screenshot407](https://user-images.githubusercontent.com/84919892/201522553-ead7f07c-f7c3-4165-8cda-71a17d9b9273.png)
 
