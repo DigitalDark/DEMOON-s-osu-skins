@@ -13,6 +13,15 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+Azer+ - https://www.mediafire.com/file/6a690slzluukbro/Azer+.osk/file
+![screenshot407](https://user-images.githubusercontent.com/84919892/201522553-ead7f07c-f7c3-4165-8cda-71a17d9b9273.png)
+
+Tekkito+Vaxei [Legoshi] - https://www.mediafire.com/file/vrn017ij3135i8h/Tekkito+Vaxei+[Legoshi].osk/file
+![screenshot404](https://user-images.githubusercontent.com/84919892/201522460-19b13765-c4ac-47de-b043-db20c176b575.png)
+
+BubbleAden - https://www.mediafire.com/file/uw5htiyzwk8an8u/bubbleAden.osk/file
+![screenshot402](https://user-images.githubusercontent.com/84919892/201522290-e81b3d26-06b8-4f1a-a296-f86993144cc7.png)
+
 SHIRONEKO 1.0 - https://www.mediafire.com/file/4kelj1e9z21rm8j/SHIRONEKO+1.0.osk/file
 ![screenshot401](https://user-images.githubusercontent.com/84919892/201521998-a9caa9bc-3d73-4e70-a014-7ceecfad5c2c.png)
 
