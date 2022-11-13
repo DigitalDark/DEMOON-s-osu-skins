@@ -13,6 +13,18 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+Tokori Vaxei Edit - https://www.mediafire.com/file/oyswqx0hadjmki9/#-Tokori+Vaxei+Edit.osk/file
+![screenshot418](https://user-images.githubusercontent.com/84919892/201532262-dc82473f-dfe5-4b3a-9f79-eb708a8aec53.png)
+
+flansl - https://www.mediafire.com/file/8lc4chytqeab30d/flansl.osk/file
+![screenshot416](https://user-images.githubusercontent.com/84919892/201532054-5fb58f8c-01e7-404e-a742-2d7298792c86.png)
+
+yaong+kimika - https://www.mediafire.com/file/ylzb4c701orn5m0/yaong+kimika.osk/file
+![screenshot415](https://user-images.githubusercontent.com/84919892/201531922-21a6fcfa-4999-410b-b025-a5ee458a13a0.png)
+
+Kuroyukihime - https://www.mediafire.com/file/dibimyxelovtr3c/Kuroyukihime.osk/file
+![screenshot413](https://user-images.githubusercontent.com/84919892/201531758-45ff7957-1be3-465e-a895-26f05c4c94b5.png)
+
 funoreo+ends+edit - https://www.mediafire.com/file/0oso1cyogptm7bl/funoreo+ends+edit.osk/file
 ![screenshot409](https://user-images.githubusercontent.com/84919892/201531178-09c4baeb-9709-4602-a104-c5aa381fac7a.png)
 
