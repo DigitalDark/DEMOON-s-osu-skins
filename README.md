@@ -13,6 +13,15 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+rho+bunnygalaxy+slightEDIT - https://www.mediafire.com/file/qtjrweb8bdlgnwc/rho+bunnygalaxy+slightEDIT.osk/file
+![screenshot399](https://user-images.githubusercontent.com/84919892/201521737-f10013b5-78e0-409b-884e-93273deb51d3.png)
+
+melloe - https://www.mediafire.com/file/573ratcy3fvb7fq/melloe.osk/file
+![screenshot397](https://user-images.githubusercontent.com/84919892/201521490-8684119f-f6b1-4bd8-b0e7-d132f7cf535a.png)
+
+chaiN De/Struction - https://www.mediafire.com/file/6lwdcnkoc2extwn/chaiN+DeStruction.osk/file
+![screenshot395](https://user-images.githubusercontent.com/84919892/201521366-78c782aa-dc7c-4750-bc51-8f7710b75685.png)
+
 cold as ice - https://www.mediafire.com/file/mcdnp56mdpr46tx/cold+as+ice.osk/file
 ![cold as ice](https://user-images.githubusercontent.com/84919892/201520925-1230b730-6608-45bf-8f4a-a6dee383041d.png)
 
