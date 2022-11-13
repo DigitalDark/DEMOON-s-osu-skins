@@ -13,6 +13,9 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+cold as ice - https://www.mediafire.com/file/mcdnp56mdpr46tx/cold+as+ice.osk/file
+![cold as ice](https://user-images.githubusercontent.com/84919892/201520925-1230b730-6608-45bf-8f4a-a6dee383041d.png)
+
 AestheticEDITsomething - https://www.mediafire.com/file/qnmvl11e1qu96id/AestheticEDITsomething.osk/file
 ![aestheticEDITsomething](https://user-images.githubusercontent.com/84919892/201520572-00e8ff17-f88a-451c-8c16-4c2644fff045.png)
 
