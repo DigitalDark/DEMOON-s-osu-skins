@@ -13,6 +13,15 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 
+AestheticEDITsomething - https://www.mediafire.com/file/qnmvl11e1qu96id/AestheticEDITsomething.osk/file
+![aestheticEDITsomething](https://user-images.githubusercontent.com/84919892/201520572-00e8ff17-f88a-451c-8c16-4c2644fff045.png)
+
+aden+varv - https://www.mediafire.com/file/a3crcxrtf6caff0/aden+varv.osk/file
+![aden+varv](https://user-images.githubusercontent.com/84919892/201520577-f8a2928e-72a4-482b-a61e-9255948b0018.png)
+
+NatorEDIT - https://www.mediafire.com/file/7wpec7024td8gs5/-+NatoriEDIT.osk/file
+![NatoriEDIT](https://user-images.githubusercontent.com/84919892/201520581-680b7882-d0ab-4646-8617-16b2bd9ed5d3.png)
+
 ✧ Milk ´ω｀Paws * - https://www.mediafire.com/file/i07piqgn01dge65/✧+Milk´ω｀Paws+.osk/file
 ![screenshot366](https://user-images.githubusercontent.com/84919892/201196381-9be71981-b0fd-46d4-8505-62ec3ab8bd09.png)
 
