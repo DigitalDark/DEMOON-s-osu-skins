@@ -3,6 +3,8 @@ D E M O O N's (now  DigitalDark's) osu! skin collection (obviously not all of th
 
 ####LAST UPLOADED SKINS ARE ON BOTTOM! (quick notice: not annymore, now theyre on top) 
 Current Skin : hvick225 + D E M O O N
+
+I NEED TO UPDATE THIS WTF, IF I HAVE TIME I WILL
 -------------------------------------------------
 
 nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
@@ -12,10 +14,6 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
-
-this is a test - https://www.mediafire.com/file/buuxri5qhidxteb/this_is_a_test.osk/file
-![screenshot464](https://user-images.githubusercontent.com/84919892/207435274-11b82719-f8d6-4a87-9566-8722d1cc7f06.png)
-
 sonumut - https://www.mediafire.com/file/wunibeinmu4pxd5/sonumut.osk/file
 ![screenshot463](https://user-images.githubusercontent.com/84919892/207434684-3ee06d66-cc96-4c84-a9fe-1c1bd68c3efc.png)
 
