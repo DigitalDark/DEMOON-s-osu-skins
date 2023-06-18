@@ -14,6 +14,12 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+not drain but digitaldark edit - https://www.mediafire.com/file/yxrijm6qey7sg7v
+![screenshot132](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/29fd9076-0bef-40ec-b601-9e7ad6398804)
+
+DigitalDark 11.06.2023 - https://www.mediafire.com/file/ygjgq9zc6i81f7j
+![screenshot134](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/a3d011aa-c0e4-4f7d-9fb9-7e99e6501b77)
+
 sonumut - https://www.mediafire.com/file/wunibeinmu4pxd5/sonumut.osk/file
 ![screenshot463](https://user-images.githubusercontent.com/84919892/207434684-3ee06d66-cc96-4c84-a9fe-1c1bd68c3efc.png)
 
