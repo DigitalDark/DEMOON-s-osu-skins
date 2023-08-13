@@ -14,6 +14,9 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+basicly lirua skin - https://www.mediafire.com/file/vs77j8j25zcjxrm
+![screenshot217](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/6cd526ea-85b8-41aa-b656-9b2a482a8a6a)
+
 the skin i made for kouma but i edited it - https://www.mediafire.com/file/afc9degskzfk0jw
 ![screenshot216](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/02404d77-2716-475e-82d0-baa979732bc7)
 
