@@ -14,6 +14,9 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+Basicly zane skin - https://www.mediafire.com/file/3ue6i5g3u38kdh7
+![screenshot213](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/cfa86ec4-abbe-4e6e-b6e5-20c52ca1069a)
+
 not drain but digitaldark edit - https://www.mediafire.com/file/yxrijm6qey7sg7v
 ![screenshot132](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/29fd9076-0bef-40ec-b601-9e7ad6398804)
 
