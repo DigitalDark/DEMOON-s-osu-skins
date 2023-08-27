@@ -14,6 +14,9 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+cinia but edited for gimmick maps- https://www.mediafire.com/file/365uqt53ih90c4b
+![screenshot229](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/55442523-99e5-424a-b8ef-3da59f294cd7)
+
 luameno - https://www.mediafire.com/file/3840r6m9ssrojwi
 ![screenshot222](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/60918660-ee77-40d9-adfb-491d43846694)
 
