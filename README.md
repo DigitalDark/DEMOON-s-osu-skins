@@ -14,6 +14,27 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+bees edit (was supposed to be uploaded on 2021 but i forgot lol) - https://www.mediafire.com/file/q6pxi520aeebqa2/bees_edit.osk/file
+![screenshot193](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/63b6d352-69d4-4c3f-b4ad-cbb144ddcc41)
+
+Hdacai miku miku skin so weeb omg but with my hpbar - https://www.mediafire.com/file/bi4kk91bwbihixj
+![screenshot191](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/d62fbb07-26aa-41b7-8f19-a069a294d583)
+
+SkinStolenFromRyukStolenFromJeff - https://www.mediafire.com/file/3evbt7s76sdu8oo/i+stole+ryuks+balls.osk/file
+![screenshot189](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/b374bc29-8d4e-404c-b741-c793a8262f38)
+
+EVB+2015+EDIT - https://www.mediafire.com/file/czmv2z6r3xndq50/Evb+2015+EDIT.osk/file
+![screenshot188](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/6bda149f-f8a9-4119-aabc-3439aa0fae06)
+
+DigitalRohulk V2 - https://www.mediafire.com/file/fb7ok4lgi89sitg/DigitalRohulk+V2.osk/file
+![screenshot187](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/60a75ad2-aa95-4e77-8a97-5967aed48523)
+
+DigitalDark 10.10.2023 - https://www.mediafire.com/file/na0kj69r54i07ho/DigitalDark+10.10.2023.osk/file
+![screenshot186](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/b96537f1-15e1-45d3-9d5e-22a4449b3f8d)
+
+SPZ17 [16.10 DD Edit] - https://www.mediafire.com/file/16khim604ebgv2v/-+++++#+SPZ17+[16.10+DD+Edit].osk/file
+![screenshot184](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/49c94e5d-dc98-4f5e-8d1d-0e393210dbd3)
+
 cinia but edited for gimmick maps- https://www.mediafire.com/file/365uqt53ih90c4b
 ![screenshot229](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/55442523-99e5-424a-b8ef-3da59f294cd7)
 
