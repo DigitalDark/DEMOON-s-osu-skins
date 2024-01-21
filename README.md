@@ -13,7 +13,14 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
+
 -------------------------------------------------
+feeling summer - https://drive.google.com/file/d/1ffzy6x2-2AY_DGqA-F7Hl2h5idxZiJhs/view?usp=drive_link
+![screenshot303](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/2d03f633-0541-4fa6-8002-4e103dde87eb)
+
+GashedPrism - https://drive.google.com/file/d/1I4ETVr0Uwu_NRw_ExBOMh8hnlSBrFhbH/view?usp=drive_link
+![screenshot302](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/16844893-9340-47bb-b904-59e1d5cb7806)
+
 bees edit (was supposed to be uploaded on 2021 but i forgot lol) - https://www.mediafire.com/file/q6pxi520aeebqa2/bees_edit.osk/file
 ![screenshot193](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/63b6d352-69d4-4c3f-b4ad-cbb144ddcc41)
 
