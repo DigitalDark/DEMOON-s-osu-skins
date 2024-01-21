@@ -1,8 +1,7 @@
 # DEMOON-s-osu-skins 
 D E M O O N's (now  DigitalDark's) osu! skin collection (obviously not all of them).I just add skins i enjoy and like! if you want me to add some skins, or you found some of my lost skins, dm me on discord: Your Living Nightmare#2368 
 
-####LAST UPLOADED SKINS ARE ON BOTTOM! (quick notice: not annymore, now theyre on top) 
-Current Skin : hvick225 + D E M O O N
+####Current Skin : xilver edit
 
 BIG THANK YOU TO SCOOCHIE FOR TAKING SOME SCREENSHOTS!!
 -------------------------------------------------
@@ -13,8 +12,10 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
-
 -------------------------------------------------
+lsxyz9 SD - https://drive.google.com/file/d/195Aw6DO4mOJzPIjmAnt_mafwv1lJ2nS2/view?usp=drive_link
+![screenshot029](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/17a2cf92-0124-4ec6-ae04-a234658e291f)
+
 basicly xilver skin - https://drive.google.com/file/d/1FCOAs4Teqk2YTr5BdWAckGvpkSpTvucV/view?usp=drive_link
 ![screenshot023](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/9a8dc097-25ec-4d19-85d3-a724eba5b475)
 
