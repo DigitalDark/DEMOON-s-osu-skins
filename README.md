@@ -15,6 +15,12 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 
 -------------------------------------------------
+basicly xilver skin - https://drive.google.com/file/d/1FCOAs4Teqk2YTr5BdWAckGvpkSpTvucV/view?usp=drive_link
+![screenshot023](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/9a8dc097-25ec-4d19-85d3-a724eba5b475)
+
+HKZ EDIT - https://drive.google.com/file/d/1bGq55oGDpbjkZf6FjNNrBm8MT225z0Ro/view?usp=drive_link
+![screenshot021](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/2a7f658b-70e0-4e5f-8ebb-35642ec1fa6b)
+
 DigitalDark 13.01.2024 - https://drive.google.com/file/d/1hTkm7PCXlCbJXI26mz4OGl4hoNL3nDQV/view?usp=drive_link
 ![screenshot016](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/ada6b9c7-b30f-477c-8d67-9279eeff9263)
 
