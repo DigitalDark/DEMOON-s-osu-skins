@@ -4,7 +4,7 @@ D E M O O N's (now  DigitalDark's) osu! skin collection (obviously not all of th
 ####LAST UPLOADED SKINS ARE ON BOTTOM! (quick notice: not annymore, now theyre on top) 
 Current Skin : hvick225 + D E M O O N
 
-I NEED TO UPDATE THIS WTF, IF I HAVE TIME I WILL
+BIG THANK YOU TO SCOOCHIE FOR TAKING SOME SCREENSHOTS!!
 -------------------------------------------------
 
 nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
@@ -15,6 +15,12 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 
 -------------------------------------------------
+DigitalDark 13.01.2024 - https://drive.google.com/file/d/1hTkm7PCXlCbJXI26mz4OGl4hoNL3nDQV/view?usp=drive_link
+![screenshot016](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/ada6b9c7-b30f-477c-8d67-9279eeff9263)
+
+DigitalDark 9.11.2023 - https://drive.google.com/file/d/1eeHpPLioacg3DNqazKxtmkJs6FQ7gavs/view?usp=drive_link
+![screenshot015](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/a1402b25-91c3-4f01-9acc-2610fa8ae366)
+
 feeling summer - https://drive.google.com/file/d/1ffzy6x2-2AY_DGqA-F7Hl2h5idxZiJhs/view?usp=drive_link
 ![screenshot303](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/2d03f633-0541-4fa6-8002-4e103dde87eb)
 
