@@ -13,6 +13,9 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+DigitalDark 29.01.2024 - https://www.mediafire.com/file/8h6egk39u5ih3ak/-+DigitalDark+29.01.2024.osk/file
+![screenshot346](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/1235d727-c0e6-481a-9c17-78ab6f7932f6)
+
 Raelza WIP Public Release - https://drive.google.com/file/d/1B0ZoOmvfCh-bo-awFKhWFj-HNsDUk58F/view?usp=drive_link
 ![screenshot030](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/4a917be2-fabe-4403-b4eb-6c39ebf0c734)
 
