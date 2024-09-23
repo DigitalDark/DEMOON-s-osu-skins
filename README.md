@@ -13,6 +13,9 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+Emilia Lemonskin Edit - https://www.mediafire.com/file/ky8ty8dndzueujr
+![screenshot599](https://github.com/user-attachments/assets/e86618f2-9719-4d57-b4e3-4d1ae81706f2)
+
 DigitalDark 29.01.2024 - https://www.mediafire.com/file/8h6egk39u5ih3ak/-+DigitalDark+29.01.2024.osk/file
 ![screenshot346](https://github.com/DigitalDark/DEMOON-s-osu-skins/assets/84919892/1235d727-c0e6-481a-9c17-78ab6f7932f6)
 
