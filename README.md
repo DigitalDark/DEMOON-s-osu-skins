@@ -13,6 +13,15 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+kusakabe - https://www.mediafire.com/file/s8vdqvr05ge3nx3
+![screenshot603](https://github.com/user-attachments/assets/7be5b0f6-7b19-4816-94ac-abec3488f354)
+
+Yunabi 3.5 DT EDIT - https://www.mediafire.com/file/1afb9drbj8e2clo
+![screenshot602](https://github.com/user-attachments/assets/e7d8303d-ce2d-4be8-b881-d5aab2d5d2e0)
+
+DTBALLCRUSHER69 (poggers skin) - https://www.mediafire.com/file/0h5dogzckt4gijd
+![screenshot601](https://github.com/user-attachments/assets/5a68638a-a1f6-409a-a077-3a26b6d82d45)
+
 Emilia Lemonskin Edit - https://www.mediafire.com/file/ky8ty8dndzueujr
 ![screenshot599](https://github.com/user-attachments/assets/e86618f2-9719-4d57-b4e3-4d1ae81706f2)
 
