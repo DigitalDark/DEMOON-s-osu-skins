@@ -13,6 +13,9 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+mikumiku - https://www.mediafire.com/file/zhfztfskvzl6g90/mikumiku.osk/file
+![screenshot613](https://github.com/user-attachments/assets/93253c13-eb83-48cf-8d36-c1c1d87008a2)
+
 kusakabe - https://www.mediafire.com/file/s8vdqvr05ge3nx3
 ![screenshot603](https://github.com/user-attachments/assets/7be5b0f6-7b19-4816-94ac-abec3488f354)
 
