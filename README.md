@@ -14,7 +14,7 @@ Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/1
 
 -------------------------------------------------
 owotuna cleanDD - https://www.mediafire.com/file/k4m6p72u2hgh546/-++++++#+owoTuna+CleanDD.osk/file
-![Uploading screenshot677.png…]()
+![screenshot677](https://github.com/user-attachments/assets/cd74186e-99e9-4019-8ed5-98e639397e9e)
 
 amaestric lemon po lifcie - https://www.mediafire.com/file/5w2e4wfhctwb5ji/Amaestric+Lemon+po+lifcie.osk/file
 ![screenshot675](https://github.com/user-attachments/assets/0c5000e3-1b24-4d62-8300-a8a5dac78918)
