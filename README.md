@@ -13,6 +13,15 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+dokisoda mix (current dt) - https://www.mediafire.com/file/z9g1ujtanuyajln/dokisoda+mix.osk/file
+![screenshot671](https://github.com/user-attachments/assets/ba21c1b7-5b98-44cf-adc4-f0bb6771be3f)
+
+bartek lite skin - https://www.mediafire.com/file/fmlzk99exffe2pb/bartek+lite+skin.osk/file
+![screenshot672](https://github.com/user-attachments/assets/4c0cc443-bdf6-44c6-91bd-c45d7a459a0e)
+
+cookeazy omaga - https://www.mediafire.com/file/ut1ud02owljsjrn/cookeazy+omaga.osk/file
+![screenshot674](https://github.com/user-attachments/assets/84691903-eacb-4462-ad70-e8e7320c8fef)
+
 mikumiku - https://www.mediafire.com/file/zhfztfskvzl6g90/mikumiku.osk/file
 ![screenshot613](https://github.com/user-attachments/assets/93253c13-eb83-48cf-8d36-c1c1d87008a2)
 
