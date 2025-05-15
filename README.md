@@ -13,6 +13,9 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+amaestric lemon po lifcie - https://www.mediafire.com/file/5w2e4wfhctwb5ji/Amaestric+Lemon+po+lifcie.osk/file
+![screenshot675](https://github.com/user-attachments/assets/0c5000e3-1b24-4d62-8300-a8a5dac78918)
+
 dokisoda mix (current dt) - https://www.mediafire.com/file/z9g1ujtanuyajln/dokisoda+mix.osk/file
 ![screenshot671](https://github.com/user-attachments/assets/ba21c1b7-5b98-44cf-adc4-f0bb6771be3f)
 
