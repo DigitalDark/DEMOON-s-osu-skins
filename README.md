@@ -13,6 +13,9 @@ nara's skins: https://github.com/DigitalDark/nara-osu-skins/blob/main/README.md
 Whale Cursor - ![cursor@2x](https://user-images.githubusercontent.com/84919892/194748954-9c32db47-453e-44b5-b914-e2764e500af6.png)
 
 -------------------------------------------------
+JamieDot NM - https://www.mediafire.com/file/ynlpxuh2e29l227/-++++++++++⟢+Jamiedot's+(NM)+Skin+⟣.osk/file
+![screenshot688](https://github.com/user-attachments/assets/57576e98-20c1-4fe2-8318-3a73fe8ce0af)
+
 owotuna cleanDD - https://www.mediafire.com/file/k4m6p72u2hgh546/-++++++#+owoTuna+CleanDD.osk/file
 ![screenshot677](https://github.com/user-attachments/assets/cd74186e-99e9-4019-8ed5-98e639397e9e)
 
